@@ -5,6 +5,8 @@
 In a faraway future, in a distant land  
 lives the *Squonk*
 
+I think Squonks do not exist!
+
 >  Add some lines to the story. Can be anything. Inspiration?  
 >  What does a Squonk **look like**?  
 >  What does it **do**?  
