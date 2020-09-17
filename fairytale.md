@@ -5,6 +5,9 @@
 In a faraway future, in a distant land  
 lives the *Squonk*
 
+The average Squonk is 9 meters tall and screams loud.
+
+
 >  Add some lines to the story. Can be anything. Inspiration?  
 >  What does a Squonk **look like**?  
 >  What does it **do**?  
