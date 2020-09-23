@@ -7,6 +7,7 @@ lives the *Squonk*
 
 The average Squonk is 7 meters tall and screams loud.
 
+The etymology of the name Squonk comes from the fact this is an approximation of the sound a squonk makes and humans are not very creative at naming things.
 
 >  Add some lines to the story. Can be anything. Inspiration?  
 >  What does a Squonk **look like**?  
