@@ -7,6 +7,8 @@ lives the *Squonk*
 
 The average Squonk is 7 meters tall and screams loud.
 
+It has kind green eyes which does not reflect its personality 
+since the Squonk mainly lives on a diet of fluffy puppies. 
 
 >  Add some lines to the story. Can be anything. Inspiration?  
 >  What does a Squonk **look like**?  
