@@ -16,3 +16,5 @@ The average Squonk is 7 meters tall and screams loud.
 >  What happened between it and the *Drowsloks*?
 
 `Well... your turn now.`
+'the squank is yellow and covered in scales. It hisses uncontrollably. 
+It once met a blue Squonk. He lives in a blue world. He saw the Drowsloks and he hissed at them angrily'
