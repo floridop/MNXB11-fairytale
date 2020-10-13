@@ -6,6 +6,7 @@ In a faraway future, in a distant land
 lives the *Squonk*
 
 The average Squonk is 7 meters tall and screams loud.
+Moreover, Squonks have an amazing sense of smell and can sense other creatures miles away.
 
 
 >  Add some lines to the story. Can be anything. Inspiration?  
