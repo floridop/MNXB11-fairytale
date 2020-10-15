@@ -5,7 +5,8 @@
 In a faraway future, in a distant land  
 lives the *Squonk*
 
-I thought Squonks did not exist!
+Many people thinks Squonks do not exist!
+But they do.
 The average Squonk is 7 meters tall and screams loud.
 
 >  Add some lines to the story. Can be anything. Inspiration?  
