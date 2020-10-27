@@ -5,7 +5,7 @@
 In a faraway future, in a distant land  
 lives the *Squonk*
 
-Many people thinks Squonks do not exist!
+Many people think Squonks do not exist!
 But they do.
 The average Squonk is 7 meters tall. Due to this, it usually does not
 notice when Drowsloks hold marathons and races around its feet.
