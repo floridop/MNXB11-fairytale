@@ -5,8 +5,14 @@
 In a faraway future, in a distant land  
 lives the *Squonk*
 
+The average Squonk is 7 meters tall and screams loud.
+
 Many people think Squonks do not exist!
 But they do.
+
+Squonks are sometimes considered to be the origin of the word "squanch",
+used in the popular television show Rick and Morty.
+
 The average Squonk is 7 meters tall. Due to this, it usually does not
 notice when Drowsloks hold marathons and races around its feet.
 
