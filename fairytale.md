@@ -20,10 +20,13 @@ Not that they are dangerous in any way, quite the opposite.
 The Squonk is a very friendly and fluffy creature. 
 Once you get used to the screaming (which hardly anyone does) you wont be able to stop cuddling your Squonk. 
 
+Most Squonks reside in the mountains where they mostly sleep and occationally walks out to collect berries to eat. 
+The loud screams keep visitors away which often makes the Squonk feel lonely.
+
 >  Add some lines to the story. Can be anything. Inspiration?  
 >  What does a Squonk **look like**?  
 >  What does it **do**?  
->  What **happened** to **it**?  
+>  What **happened** to **it**? 
 >  What does the **world** he lives in **look like**?
 >  What happened between it and the *Drowsloks*?
 
