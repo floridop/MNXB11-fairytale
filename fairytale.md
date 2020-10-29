@@ -7,6 +7,10 @@ lives the *Squonk*
 
 The average Squonk is 7 meters tall and screams loud.
 
+One day the Squonk decides to visit Canada. At first everything is fine
+since there are a lot of unhabitated woods for it to move around in.
+Eventually though, the Squonk wanders in to a big city and as you can 
+imagine, **CHAOS**!
 
 >  Add some lines to the story. Can be anything. Inspiration?  
 >  What does a Squonk **look like**?  
@@ -16,8 +20,4 @@ The average Squonk is 7 meters tall and screams loud.
 >  What happened between it and the *Drowsloks*?
 
 `Well... your turn now.`
-My story:
-One day the Squonk decides to visit Canada. At first everything is fine
-since there are a lot of unhabitated woods for it to move around in.
-Eventually though, the Squonk wanders in to a big city and as you can 
-imagine, **CHAOS**!
+
