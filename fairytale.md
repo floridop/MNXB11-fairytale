@@ -5,7 +5,6 @@
 In a faraway future, in a distant land  
 lives the *Squonk*
 
-The average Squonk is 7 meters tall and screams loud.
 Many people think Squonks do not exist!
 But they do.
 
