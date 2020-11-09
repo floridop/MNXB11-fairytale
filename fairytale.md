@@ -34,6 +34,7 @@ since there are a lot of unhabitated woods for it to move around in.
 Eventually though, the Squonk wanders in to a big city and as you can 
 imagine, **CHAOS**!
 
+---------------------------------------------------------------
 >  Add some lines to the story. Can be anything. Inspiration?  
 >  What does a Squonk **look like**?  
 >  What does it **do**?  
@@ -42,4 +43,4 @@ imagine, **CHAOS**!
 >  What happened between it and the *Drowsloks*?
 
 `Well... your turn now.`
-
+---------------------------------------------------------------
