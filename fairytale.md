@@ -5,8 +5,6 @@
 In a faraway future, in a distant land  
 lives the *Squonk*
 
-The average Squonk is 7 meters tall and screams loud.
-
 Many people think Squonks do not exist!
 But they do.
 
@@ -20,14 +18,26 @@ The Squonk is yellow and covered in scales. It hisses uncontrollably.
 It once met a blue Squonk. He lives in a blue world. He saw the Drowsloks and he hissed at them angrily.
 
 Squonks scream loud. The call of a Squonk can be heard miles away, warning you to stay away. (As most try to live a Squonk-free life, the noise is a mild annoyance at best)
+The etymology of the name Squonk comes from the fact this is an approximation of the sound a squonk makes and humans are not very creative at naming things.
 
 Not that they are dangerous in any way, quite the opposite.
 
 The Squonk is a very friendly and fluffy creature. 
-Once you get used to the screaming (which hardly anyone does) you wont be able to stop cuddling your Squonk. 
+Once you get used to the screaming (which hardly anyone does) you wont be able to stop cuddling your Squonk.
+This is also why deaf creatures such as the Surdislok get along really well with the Squonks and protect them with their lives. 
+
+Anyway, I think that this creature is rather similar to the Tasmamian devil; however, they seem gentle and clumsy, though, the funny figure and animal sound.
+Squonk live in Pennsylvania where, time to time, use to encounter with their neighbourhood _Drowsloks_.
 
 Most Squonks reside in the mountains where they mostly sleep and occationally walks out to collect berries to eat. 
 The loud screams keep visitors away which often makes the Squonk feel lonely.
+
+One day the Squonk decides to visit Canada. At first everything is fine
+since there are a lot of unhabitated woods for it to move around in.
+Eventually though, the Squonk wanders in to a big city and as you can 
+imagine, **CHAOS**!
+
+---------------------------------------------------------------
 
 >  Add some lines to the story. Can be anything. Inspiration?  
 >  What does a Squonk **look like**?  
@@ -37,3 +47,5 @@ The loud screams keep visitors away which often makes the Squonk feel lonely.
 >  What happened between it and the *Drowsloks*?
 
 `Well... your turn now.`
+
+---------------------------------------------------------------
