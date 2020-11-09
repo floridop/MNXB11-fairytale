@@ -8,6 +8,12 @@ lives the *Squonk*
 Many people think Squonks do not exist!
 But they do.
 
+I think Squonks do not exist!
+
+
+Anyway, I think that this creature is rather similar to the Tasmamian devil; however, they seem gentle and clumsy, though, the funny figure and animal sound.
+Squonk live in Pennsylvania where, time to time, use to encounter with their neighbourhood _Drowsloks_.
+
 Squonks are sometimes considered to be the origin of the word "squanch",
 used in the popular television show Rick and Morty.
 
