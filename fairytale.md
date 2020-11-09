@@ -8,12 +8,6 @@ lives the *Squonk*
 Many people think Squonks do not exist!
 But they do.
 
-I think Squonks do not exist!
-
-
-Anyway, I think that this creature is rather similar to the Tasmamian devil; however, they seem gentle and clumsy, though, the funny figure and animal sound.
-Squonk live in Pennsylvania where, time to time, use to encounter with their neighbourhood _Drowsloks_.
-
 Squonks are sometimes considered to be the origin of the word "squanch",
 used in the popular television show Rick and Morty.
 
@@ -31,6 +25,9 @@ Not that they are dangerous in any way, quite the opposite.
 The Squonk is a very friendly and fluffy creature. 
 Once you get used to the screaming (which hardly anyone does) you wont be able to stop cuddling your Squonk.
 This is also why deaf creatures such as the Surdislok get along really well with the Squonks and protect them with their lives. 
+
+Anyway, I think that this creature is rather similar to the Tasmamian devil; however, they seem gentle and clumsy, though, the funny figure and animal sound.
+Squonk live in Pennsylvania where, time to time, use to encounter with their neighbourhood _Drowsloks_.
 
 One day the Squonk decides to visit Canada. At first everything is fine
 since there are a lot of unhabitated woods for it to move around in.
