@@ -29,16 +29,20 @@ This is also why deaf creatures such as the Surdislok get along really well with
 Anyway, I think that this creature is rather similar to the Tasmamian devil; however, they seem gentle and clumsy, though, the funny figure and animal sound.
 Squonk live in Pennsylvania where, time to time, use to encounter with their neighbourhood _Drowsloks_.
 
+Most Squonks reside in the mountains where they mostly sleep and occationally walks out to collect berries to eat. 
+The loud screams keep visitors away which often makes the Squonk feel lonely.
+
 One day the Squonk decides to visit Canada. At first everything is fine
 since there are a lot of unhabitated woods for it to move around in.
 Eventually though, the Squonk wanders in to a big city and as you can 
 imagine, **CHAOS**!
 
 ---------------------------------------------------------------
+
 >  Add some lines to the story. Can be anything. Inspiration?  
 >  What does a Squonk **look like**?  
 >  What does it **do**?  
->  What **happened** to **it**?  
+>  What **happened** to **it**? 
 >  What does the **world** he lives in **look like**?
 >  What happened between it and the *Drowsloks*?
 
