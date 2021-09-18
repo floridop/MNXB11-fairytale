@@ -13,6 +13,7 @@ The interdimensional journey begins...
 ...on a friday. The Artifact was shining particularly bright this evening.
 Bengt, one of the local blacksmiths, approached the Artifact.
 He pulled out his axe and swung it, with all the power he had left, towards the Artifact...
+But the Artifact did not budge
 
 ---------------------------------------------------------------
 
