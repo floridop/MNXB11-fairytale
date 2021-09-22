@@ -5,6 +5,8 @@
 Although many had tried, no one succeded again. 
 The Artifact remained unopened, 
 and yet to be discovered was the mistery of its content. Until that day.
+The day when everything change, and the Fire nation attacked...
+
 
    ANY_CONTENT_HERE
 
