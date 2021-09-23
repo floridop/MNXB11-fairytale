@@ -6,7 +6,10 @@ Although many had tried, no one succeded again.
 The Artifact remained unopened, 
 and yet to be discovered was the mistery of its content. Until that day.
 
-   ANY_CONTENT_HERE
+The artifact then opened and inside laid a sword:
+      /| ________________
+O|===|* >________________>
+      \|
 
 ---------------------------------------------------------------
 
