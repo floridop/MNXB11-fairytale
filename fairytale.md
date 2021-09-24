@@ -5,6 +5,8 @@
 Although many had tried, no one succeded again. 
 The Artifact remained unopened, 
 and yet to be discovered was the mistery of its content. Until that day.
+The explorer and his companion stood there. Looking at it. Staring at it. Its shape, texture and smell was intriguing. 
+
 
    ANY_CONTENT_HERE
 
