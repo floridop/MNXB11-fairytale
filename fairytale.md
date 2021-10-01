@@ -4,9 +4,11 @@
 
 Although many had tried, no one succeded again. 
 The Artifact remained unopened, 
-and yet to be discovered was the mistery of its content. Until that day.
+and yet to be discovered was the mistery of its content. Until one day...
 
-   ANY_CONTENT_HERE
+... it was actually not just one day. It was many, in many
+different parallel universes, all happening at the same time.
+The interdimensional journey begins...
 
 ---------------------------------------------------------------
 
