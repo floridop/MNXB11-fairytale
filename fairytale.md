@@ -3,14 +3,12 @@
 ------------------------------------
 
 Although many had tried, no one succeded again. 
-The Artifact remained unopened, 
-and yet to be discovered was the mistery of its content. Until that day.
-The day when everything change, and the Fire nation attacked...
+The Artifact remained unopened, and yet to be discovered was the mistery of its content. Until that day. 
+The day when everything change, and the Fire nation attacked. 
+It was actually not just one day. It was many, in many different parallel universes, all happening at the same time. 
+The interdimensional journey begins...
 
 
-   ANY_CONTENT_HERE
-
----------------------------------------------------------------
 
 >  Add some lines to the story. Can be anything. Inspiration?  
 >  What does The Artifact **look like**?  
@@ -21,4 +19,3 @@ The day when everything change, and the Fire nation attacked...
 
 `Well... your turn now.`
 
----------------------------------------------------------------
