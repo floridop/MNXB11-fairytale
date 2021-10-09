@@ -32,6 +32,9 @@ The interdimensional journey begins...
 Bengt, one of the local blacksmiths, approached the Artifact.
 He pulled out his axe and swung it, with all the power he had left, towards the Artifact...
 
+...But just in the nick of time, Peter clad in iron armour, threw himself in the way of the axe and saved the Artifact without sustaining any damage. The blacksmith Bengt explained that he had been under a spell enticing him to destroy the Artifact. Who would cast such a spell?...
+
+
 
 ---------------------------------------------------------------
 
