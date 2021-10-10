@@ -33,6 +33,7 @@ Bengt, one of the local blacksmiths, approached the Artifact.
 He pulled out his axe and swung it, with all the power he had left, towards the Artifact...
 
 ...striking it with the precision expected of one who spends all day beating metal. At this precise moment, the Artifact, as if releasing a great quantity of energy, rose up, enveloped itself in a blinding light surrounded by a choir of some angelic nature, and sent a stunned Bengt staggering backwards, looking on as the Artifact began to reveal the clandestine contents of its nigh-unbreakable shell: an exact replica of itself, except roughly four percent smaller. Bengt, now with permanent cataracts burned into his eyes, stepped towards it.
+
 ---------------------------------------------------------------
 
 >  Add some lines to the story. Can be anything. Inspiration?  
