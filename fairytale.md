@@ -32,6 +32,7 @@ The interdimensional journey begins...
 Bengt, one of the local blacksmiths, approached the Artifact.
 He pulled out his axe and swung it, with all the power he had left, towards the Artifact...
 
+Bengt completely destroyed the Artifact. The sauce started pouring down the table and flooded the house.
 
 ---------------------------------------------------------------
 
