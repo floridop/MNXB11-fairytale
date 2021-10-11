@@ -3,9 +3,10 @@
 ------------------------------------
 
 Although many had tried, no one succeded again. 
-The Artifact remained unopened, 
-and yet to be discovered was the mistery of its content. Until one day...
-
+The Artifact remained unopened, and yet to be discovered was the mistery of its content. Until that day. The day when everything change, and the Fire nation attacked. 
+It was actually not just one day. It was many, in many different parallel universes, all happening at the same time. The interdimensional journey begins on a friday. The Artifact was shining particularly bright this evening.
+Bengt, one of the local blacksmiths, approached the Artifact.
+He pulled out his axe and swung it, with all the power he had left, towards the Artifact...
 
 Now is the year of 2530
 Peter dropped several drops of sauce on the Artifact when he ate chicken dumplings. He was in a panic since his father Andrey had warned him not touch it. But Peter noticed that an imperceptible crack appeared. The Artifact was like a bottle but with heavy and thick sealing wax. 
@@ -24,13 +25,8 @@ Andrey did not stop him. He remembered that his grandmother had said that there 
 
 So, he also boiled dumplings, and together with his son Peter,  tasted the dumplings with this bottle of rice vinegar that had been stored for half a century.
 
-... it was actually not just one day. It was many, in many
-different parallel universes, all happening at the same time.
-The interdimensional journey begins...
 
-...on a friday. The Artifact was shining particularly bright this evening.
-Bengt, one of the local blacksmiths, approached the Artifact.
-He pulled out his axe and swung it, with all the power he had left, towards the Artifact...
+
 
 
 ---------------------------------------------------------------
@@ -44,4 +40,3 @@ He pulled out his axe and swung it, with all the power he had left, towards the 
 
 `Well... your turn now.`
 
----------------------------------------------------------------
