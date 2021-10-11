@@ -3,8 +3,13 @@
 ------------------------------------
 
 Although many had tried, no one succeded again. 
-The Artifact remained unopened, and yet to be discovered was the mistery of its content. Until that day. The day when everything change, and the Fire nation attacked. 
-It was actually not just one day. It was many, in many different parallel universes, all happening at the same time. The interdimensional journey begins on a friday. The Artifact was shining particularly bright this evening.
+The Artifact remained unopened, and yet to be discovered was the mistery of its content. 
+Until that day, the day when everything changed, and the Fire nation attacked. 
+
+It was actually not just one day. It was many, in many different parallel universes, all happening at the same time. 
+
+The interdimensional journey began on a friday. 
+The Artifact was shining particularly bright that evening.
 Bengt, one of the local blacksmiths, approached the Artifact.
 He pulled out his axe and swung it, with all the power he had left, towards the Artifact...
 
@@ -24,9 +29,6 @@ Peter could not wait. He have already poured out the vinegar and dipped the dump
 Andrey did not stop him. He remembered that his grandmother had said that there were several Artifacts like this before, but only this one was left after she was 10 years old. It is said that no one can open this last bottle perfectly.  It turned out that the Artifacts stored the rice vinegar. The sealing wax cracked when met Peter's sauce, probably because of some substance in the sauce.
 
 So, he also boiled dumplings, and together with his son Peter,  tasted the dumplings with this bottle of rice vinegar that had been stored for half a century.
-
-
-
 
 
 ---------------------------------------------------------------
