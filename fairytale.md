@@ -30,7 +30,6 @@ So, he also boiled dumplings, and together with his son Peter,  tasted the dumpl
 
 
 ---------------------------------------------------------------
->>>>>>> main
 
 >  Add some lines to the story. Can be anything. Inspiration?  
 >  What does The Artifact **look like**?  
