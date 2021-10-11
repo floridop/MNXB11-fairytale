@@ -32,7 +32,7 @@ The interdimensional journey begins...
 Bengt, one of the local blacksmiths, approached the Artifact.
 He pulled out his axe and swung it, with all the power he had left, towards the Artifact...
 
-
+And the axe crashed into the Artifact -- The doom of man! Not the doom of the world. Or Frodo's Ring. the doom of Gondor!Taken by Isildur from the Blue Moon. The Ring has no power on it.  It has no power in this whole land. InuthorInuthor has this.  Inuthor has quite just enough.  Not even a name.  Who is Justineau?  i send you, Gandalf, not to ask who dared do this, not to ask why!
 ---------------------------------------------------------------
 
 >  Add some lines to the story. Can be anything. Inspiration?  
