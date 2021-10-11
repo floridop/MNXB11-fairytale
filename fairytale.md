@@ -30,7 +30,7 @@ Andrey did not stop him. He remembered that his grandmother had said that there 
 
 So, he also boiled dumplings, and together with his son Peter,  tasted the dumplings with this bottle of rice vinegar that had been stored for half a century.
 
-
+Suddenly, Peter started to feel his stomach cramping. He was shouting for his father, while the cramps were getting worse every second. Andrey was worried, he did not how to help his son. He thought, that they should have been more carefull with the vinegar.
 ---------------------------------------------------------------
 
 >  Add some lines to the story. Can be anything. Inspiration?  
