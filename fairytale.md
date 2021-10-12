@@ -30,6 +30,7 @@ Andrey did not stop him. He remembered that his grandmother had said that there 
 
 So, he also boiled dumplings, and together with his son Peter,  tasted the dumplings with this bottle of rice vinegar that had been stored for half a century.
 
+Somehow, what was otherwise perfectly ordinariy dumplings tasted indescribably delicious. This half-century old rice vinegar added complexity, umami, and a certain je ne sais quoi, to the dish.
 
 ---------------------------------------------------------------
 
