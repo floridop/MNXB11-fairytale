@@ -30,7 +30,7 @@ Andrey did not stop him. He remembered that his grandmother had said that there 
 
 So, he also boiled dumplings, and together with his son Peter,  tasted the dumplings with this bottle of rice vinegar that had been stored for half a century.
 
-
+"This is a fantastic Friday evening" thought Andrey. In the background, the news on the holo-projector TV talked about military operations carried out by the Pan-Oceanic Nation, colloquially known as the 'Fire Nation' after the common wildfires in the Australian continent.
 ---------------------------------------------------------------
 
 >  Add some lines to the story. Can be anything. Inspiration?  
