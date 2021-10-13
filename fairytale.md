@@ -32,7 +32,7 @@ Andrey did not stop him. He remembered that his grandmother had said that there 
 
 So, he also boiled dumplings, and together with his son Peter,  tasted the dumplings with this bottle of rice vinegar that had been stored for half a century.
 
-
+And indeed, as Andrey's grandmother had said, the rice vinegar was more mellow than he and his son had expected. And yet, the Artifact had forever changed them. 
 ---------------------------------------------------------------
 
 >  Add some lines to the story. Can be anything. Inspiration?  
