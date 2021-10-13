@@ -13,6 +13,8 @@ The Artifact was shining particularly bright that evening.
 Bengt, one of the local blacksmiths, approached the Artifact.
 He pulled out his axe and swung it, with all the power he had left, towards the Artifact...
 
+And Bengt was sucked into the artifact.
+
 Now is the year of 2530
 Peter dropped several drops of sauce on the Artifact when he ate chicken dumplings. He was in a panic since his father Andrey had warned him not touch it. But Peter noticed that an imperceptible crack appeared. The Artifact was like a bottle but with heavy and thick sealing wax. 
 
