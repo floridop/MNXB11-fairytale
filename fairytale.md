@@ -44,6 +44,6 @@ So, he also boiled dumplings, and together with his son Peter,  tasted the dumpl
 
 `Well... your turn now.`
 
-We go back to year 2077. Johnny Silverhand, a rock star turned war general oversees a dystopian-looking Tokyo in Japan. As he roams the streets on his tank, he notices a shining object placed on the counter of an abandoned street sushi bar. As he leans closer, the object shines brighter. It looks like a bottle, but at the same time doesn't. Its outside form continuously morphs from one vague shape to another. Intrigued by his new finding, he reaches for the bottle only to be engulfed in bright blue flames....
+We go back to year 2077. Johnny Silverhand, a rock star turned war general oversees a dystopian-looking Tokyo in Japan. As he roams the streets on his tank, he notices a shining object placed on the counter of an abandoned street sushi bar. As he leans closer, the object shines brighter. It looks like a bottle, but at the same time doesn't. Its outside form continuously morphs from one vague shape to another. Intrigued by his new finding, he reaches for the bottle only to be engulfed in bright blue flames...
 
 
