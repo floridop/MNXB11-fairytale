@@ -44,3 +44,10 @@ So, he also boiled dumplings, and together with his son Peter,  tasted the dumpl
 
 `Well... your turn now.`
 
+
+Chop Chop and Samsung headphones dont go together!!
+
+
+
+
+
