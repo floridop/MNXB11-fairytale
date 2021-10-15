@@ -42,5 +42,7 @@ So, he also boiled dumplings, and together with his son Peter,  tasted the dumpl
 >  When was it opened before? 
 >  What happened when it was opened?
 
+Once upon a time i went to ChopChop and I asked for samsung headphones, they kindly redponded no.
+
 `Well... your turn now.`
 
