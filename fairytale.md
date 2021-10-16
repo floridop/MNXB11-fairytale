@@ -32,7 +32,7 @@ Andrey did not stop him. He remembered that his grandmother had said that there 
 
 So, he also boiled dumplings, and together with his son Peter,  tasted the dumplings with this bottle of rice vinegar that had been stored for half a century.
 
-
+After they finished the dumplings and the full bottle of rice, they realised that on that day, they tried for the first and last time in their lives the oldest rice vinegar existing in the whole world. 
 ---------------------------------------------------------------
 
 >  Add some lines to the story. Can be anything. Inspiration?  
