@@ -31,8 +31,6 @@ Peter could not wait. He have already poured out the vinegar and dipped the dump
 Andrey did not stop him. He remembered that his grandmother had said that there were several Artifacts like this before, but only this one was left after she was 10 years old. It is said that no one can open this last bottle perfectly.  It turned out that the Artifacts stored the rice vinegar. The sealing wax cracked when met Peter's sauce, probably because of some substance in the sauce.
 
 So, he also boiled dumplings, and together with his son Peter,  tasted the dumplings with this bottle of rice vinegar that had been stored for half a century.
-
-
 ---------------------------------------------------------------
 
 >  Add some lines to the story. Can be anything. Inspiration?  
