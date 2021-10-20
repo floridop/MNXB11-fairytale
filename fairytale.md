@@ -34,6 +34,7 @@ Andrey did not stop him. He remembered that his grandmother had said that there 
 So, he also boiled dumplings, and together with his son Peter,  tasted the dumplings with this bottle of rice vinegar that had been stored for half a century.
 
 Although no one lived to tell the tale a blurry image was found that is rumored to depict **The Artifact** 
+```
 cl:......'',;cxkkkkkkkkkkkkkkOOkkOOOOOOOOOOOOOOOOOOOOOOOOOOkxkO0OOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOkkkkkkkkkd:,'''''.'''cxd
 odl,....'.',;cxkkkkkkkkkkkkkOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOkxkO0O000OOOOOOOOOOOOOOOOOOOOOOOOOOOOkkkkkkkkxxl,''....'.'lxx
 ddo:;;;;;;;:clxxxkkkkkkkkkkOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOkOO0000000000000000000000OOO00OOOOOOOOOkkkkkxxo:;;;;,;;;:oxx
@@ -79,6 +80,7 @@ ooooodddddddddddddddddxxxxxxxxxxxxxxxxxxxxxxxdoooc:;;;;,,'''''...',,;:cldxxxxxxx
 ooooooodddddddddddddddddxxxxxxxxxxxxxxxxxxxkkxxxxxxdolllcc:,',:cclodxxxxxxxxxxxxxxxxxxdddddddddddddddddddddddooooooooool
 oooooooooddddddddddddddddddxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxxd:':dxxxxxxxxxxxxxxxxxxxxxxxxxdddddddddddddddddddooooooooooool
 looooooooooddddddddddddddddddxxxxxxxxxxxxxxxxxxxxxxxxxxxdxd:':dxxxxxxxxxxxxxxxxxxxxxxxxxxdddddddddddddddooooooooooooolll
+```
 __An image that is roumored to depict the artifact__
 
 ... In another parrallel universe, rumor tells that the origin and purpose of this artifact.
