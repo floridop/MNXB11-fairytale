@@ -2,9 +2,6 @@
 # The Misterious Artifact: A collaborative story
 ------------------------------------
 
-
-
-
 Although many had tried, no one succeded again. The Artifact remained unopened, and yet to be discovered was the mistery of its content. 
 Until that day, the day when everything changed, and the Fire nation attacked. 
 
