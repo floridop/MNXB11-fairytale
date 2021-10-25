@@ -13,6 +13,7 @@ The interdimensional journey began on a friday.
 The Artifact was shining particularly bright that evening.
 Bengt, one of the local blacksmiths, approached the Artifact.
 He pulled out his axe and swung it, with all the power he had left, towards the Artifact...
+The big, dark artifact...
 And Bengt was sucked into the artifact.
 
 Now is the year of 2530
