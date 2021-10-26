@@ -33,6 +33,16 @@ Andrey did not stop him. He remembered that his grandmother had said that there 
 
 So, he also boiled dumplings, and together with his son Peter,  tasted the dumplings with this bottle of rice vinegar that had been stored for half a century.
 
+... it was actually not just one day. It was many, in many
+different parallel universes, all happening at the same time.
+The interdimensional journey begins...
+
+...on a friday. The Artifact was shining particularly bright this evening.
+Bengt, one of the local blacksmiths, approached the Artifact.
+He pulled out his axe and swung it, with all the power he had left, towards the Artifact...
+
+Not much later, an eerie woman with enchanting green eyes and a wicked laugh whilst carrying a decorated big book and wearing everso pointed hat appeared in front the household. The mysterious and magical nature of the Artifact was revealed to the people - although it was up to them to choose to believe it. According to this 'witch', the Artifact is in reality a substance that can be altered into a liquid of any kind, property or quality - one's imagination is the limit. But, for such a great feat certain trials needed to be completed. And so the blood-filled and treacherous adventure begins ...
+
 Although no one lived to tell the tale a blurry image was found that is rumored to depict **The Artifact** 
 ```
 cl:......'',;cxkkkkkkkkkkkkkkOOkkOOOOOOOOOOOOOOOOOOOOOOOOOOkxkO0OOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOOkkkkkkkkkd:,'''''.'''cxd
