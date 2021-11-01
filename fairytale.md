@@ -106,10 +106,7 @@ a boy leaveing the farmhouse on the outscurts of the village heading to the
 forest in the north...
 
 ---------------------------------------------------------------
-
-^^^^ **PLEASE ONLY ADD CONTENT ANYWHERE IN THE TEXT ABOVE THE LINE** ^^^^
-
-**PLEASE DD NOT ADD ANY CONTENT IN THIS AREA AND BELOW!**
+**PLEASE DO NOT ADD ANY CONTENT IN THIS AREA AND BELOW!**
 
 >  Add some lines to the story. Can be anything. Inspiration?  
 >  What does The Artifact **look like**?  
