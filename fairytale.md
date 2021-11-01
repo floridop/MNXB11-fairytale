@@ -107,6 +107,8 @@ forest in the north...
 
 ---------------------------------------------------------------
 
+     ^^^^ PLEASE ONLY ADD CONTENT ABOVE THE LINE ^^^^
+
 >  Add some lines to the story. Can be anything. Inspiration?  
 >  What does The Artifact **look like**?  
 >  Where does it **come from**?  
