@@ -43,7 +43,6 @@ The interdimensional journey begins...
 Bengt, one of the local blacksmiths, approached the Artifact.
 He pulled out his axe and swung it, with all the power he had left, towards the Artifact...
 
-
 ...But just in the nick of time, Peter clad in iron armour, threw himself in the way of the axe and saved the Artifact without sustaining any damage. The blacksmith Bengt explained that he had been under a spell enticing him to destroy the Artifact. But who would cast such a spell?....
 
 Not much later, an eerie woman with enchanting green eyes and a wicked laugh whilst carrying a decorated big book and wearing everso pointed hat appeared in front the household. The mysterious and magical nature of the Artifact was revealed to the people - although it was up to them to choose to believe it. According to this 'witch', the Artifact is in reality a substance that can be altered into a liquid of any kind, property or quality - one's imagination is the limit. But, for such a great feat certain trials needed to be completed. And so the blood-filled and treacherous adventure begins ...
@@ -132,7 +131,6 @@ Ah, ha, ha, ha, stayin' alive, stayin' alive
 Ah, ha, ha, ha, stayin' alive"
 
 And so, what the artifact foretold came to be, the snake faced queen of three-in-one whomst is deigned with the syllables AYEM AE SEHTI AE VEHK, bore fruit to the warrior poet Vehk -- whom would be been known to the Velothi as the tribune Vivec. The ending of the words is ALMSIVI.
-
 ---------------------------------------------------------------
 **PLEASE DO NOT ADD ANY CONTENT IN THIS AREA AND BELOW!**
 
