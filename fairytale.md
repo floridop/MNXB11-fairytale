@@ -112,6 +112,27 @@ This boy ventured into the forest toward the sorcerer's tower because his mother
 and after a long journey he finally got to the tower. The tower's doors refused to open for him and the boy started wondering if it had all been for nothing. As the boy started to leave, the 
 tower opened up before him and he saw the sorcerer. The ancient sorcerer told him of an Artifact of great power, and explained that his mother's disease could ruin the entire kingdom. But what the boy
 learned next shocked him...
+
+He learned that the artifact : palantir (PLTR), for so it was called, was not the wise investment he had been told; and so he decided to stop being a bagholder and -- 
+insteaded shorted the accursed trinket which sent him to the moon; and all his financial troubles came to an end. Lo, thus spake the palantir : 
+
+"Well, you can tell by the way I use my walk
+I'm a woman's man, no time to talk
+Music loud and women warm, I've been kicked around
+Since I was born
+And now it's alright, it's okay
+And you may look the other way
+We can try to understand
+The New York Times' effect on man
+Whether you're a brother or whether you're a mother
+You're stayin' alive, stayin' alive
+Feel the city breakin' and everybody shakin'
+And we're stayin' alive, stayin' alive
+Ah, ha, ha, ha, stayin' alive, stayin' alive
+Ah, ha, ha, ha, stayin' alive"
+
+And so, what the artifact foretold came to be, the snake faced queen of three-in-one whomst is deigned with the syllables AYEM AE SEHTI AE VEHK, bore fruit to the warrior poet Vehk -- whom would be been known to the Velothi as the tribune Vivec. The ending of the words is ALMSIVI.
+
 ---------------------------------------------------------------
 **PLEASE DO NOT ADD ANY CONTENT IN THIS AREA AND BELOW!**
 
