@@ -108,7 +108,10 @@ the eastern mountain tops to, however early in the morning it was, you could alr
 a boy leaveing the farmhouse on the outscurts of the village heading to the
 forest in the north...
 
-
+This boy ventured into the forest toward the sorcerer's tower because his mother was dying of a mysterious disease. He hoped that the sorcerer would be able to cure his mother,
+and after a long journey he finally got to the tower. The tower's doors refused to open for him and the boy started wondering if it had all been for nothing. As the boy started to leave, the 
+tower opened up before him and he saw the sorcerer. The ancient sorcerer told him of an Artifact of great power, and explained that his mother's disease could ruin the entire kingdom. But what the boy
+learned next shocked him...
 ---------------------------------------------------------------
 **PLEASE DO NOT ADD ANY CONTENT IN THIS AREA AND BELOW!**
 
