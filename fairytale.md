@@ -131,6 +131,10 @@ Ah, ha, ha, ha, stayin' alive, stayin' alive
 Ah, ha, ha, ha, stayin' alive"
 
 And so, what the artifact foretold came to be, the snake faced queen of three-in-one whomst is deigned with the syllables AYEM AE SEHTI AE VEHK, bore fruit to the warrior poet Vehk -- whom would be been known to the Velothi as the tribune Vivec. The ending of the words is ALMSIVI.  
+
+The snake faced queen completely ate the Artifact. The sauce started pouring down the table and flooded the house.
+
+
 ---------------------------------------------------------------
 **PLEASE DO NOT ADD ANY CONTENT IN THIS AREA AND BELOW!**
 
