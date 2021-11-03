@@ -7,7 +7,7 @@ Until that day, the day when everything changed, and the Fire nation attacked.
 
 It was actually not just one day. It was many, in many different parallel universes, all happening at the same time. 
 
-The interdimensional journey begins to the best of our knowledge in the year 30 AD with the execution of Jesus of Nazareth by Pontius Pilate. The journey is that of mystery and great confusion for our characters in 1930s Moscow 
+The interdimensional journey begins to the best of our knowledge in the year 30 AD with the executionhttps://github.com/floridop/MNXB01-fairytale.git of Jesus of Nazareth by Pontius Pilate. The journey is that of mystery and great confusion for our characters in 1930s Moscow 
 
 The interdimensional journey began on a friday. 
 The Artifact was shining particularly bright that evening.
@@ -134,7 +134,8 @@ And so, what the artifact foretold came to be, the snake faced queen of three-in
 
 The snake faced queen completely ate the Artifact. The sauce started pouring down the table and flooded the house.
 
-
+With the house flooding the snake faced queen started to panic, and before anyone could react they all drowned. When a group of adventurers stumbled upon the place a 100 years later all they could find was the artifact, now shaped like a silver ring. This happened because the artifact has the power to shapeshift
+The adventures took the ring to the king of the land, who took it from them and bored it himself. While the ring gave the king loads of power, it corrupted him and set him upon a dark path.
 ---------------------------------------------------------------
 **PLEASE DO NOT ADD ANY CONTENT IN THIS AREA AND BELOW!**
 
