@@ -33,7 +33,6 @@ Andrey did not stop him. He remembered that his grandmother had said that there 
 
 So, he also boiled dumplings, and together with his son Peter,  tasted the dumplings with this bottle of rice vinegar that had been stored for half a century.
 
-
 After they finished the dumplings and the full bottle of rice, they realised that on that day, they tried for the first and last time in their lives the oldest rice vinegar existing in the whole world. 
 
 Suddenly, Peter started to feel his stomach cramping. He was shouting for his father, while the cramps were getting worse every second. Andrey was worried, he did not how to help his son. He thought, that they should have been more carefull with the vinegar.
