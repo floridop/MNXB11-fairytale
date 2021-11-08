@@ -33,6 +33,9 @@ Andrey did not stop him. He remembered that his grandmother had said that there 
 
 So, he also boiled dumplings, and together with his son Peter,  tasted the dumplings with this bottle of rice vinegar that had been stored for half a century.
 
+
+After they finished the dumplings and the full bottle of rice, they realised that on that day, they tried for the first and last time in their lives the oldest rice vinegar existing in the whole world. 
+
 Suddenly, Peter started to feel his stomach cramping. He was shouting for his father, while the cramps were getting worse every second. Andrey was worried, he did not how to help his son. He thought, that they should have been more carefull with the vinegar.
 
 ... it was actually not just one day. It was many, in many
@@ -133,6 +136,7 @@ Ah, ha, ha, ha, stayin' alive"
 And so, what the artifact foretold came to be, the snake faced queen of three-in-one whomst is deigned with the syllables AYEM AE SEHTI AE VEHK, bore fruit to the warrior poet Vehk -- whom would be been known to the Velothi as the tribune Vivec. The ending of the words is ALMSIVI.  
 
 The snake faced queen completely ate the Artifact. The sauce started pouring down the table and flooded the house.
+
 
 
 ---------------------------------------------------------------
