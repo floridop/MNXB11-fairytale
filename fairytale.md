@@ -148,4 +148,6 @@ The snake faced queen completely ate the Artifact. The sauce started pouring dow
 >  When was it opened before? 
 >  What happened when it was opened?
 
+Once upon a time i went to ChopChop and I asked for samsung headphones, they kindly redponded no.
+
 `Well... your turn now.`
