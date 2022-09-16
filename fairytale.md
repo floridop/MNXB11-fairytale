@@ -18,7 +18,13 @@ stuff. I thought you said you were used to it!"
 "Did I say...? Oh sure, sure! I've seen this before, no problem!" - 
 answered Zo-oZ in a mix of shame and confusion.
 
-As they stepped into the company's instaporter...
+As they stepped into the company's instaporter Xa-aX's TikTok Broadcaster
+started bipping. People was chocked by the news.
+
+"It seems that perhaps some people will not get some sleep...
+as I was trying to say before." said Zo-oZ carefully.
+
+Zo-oZ phone starts ringing, they gasp, "It's Fox calling." ...
 
 ------------------------------------------
 > ONLY ADD CONTENT ABOVE THE LINE
