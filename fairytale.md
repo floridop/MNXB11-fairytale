@@ -20,6 +20,7 @@ answered Zo-oZ in a mix of shame and confusion.
 
 As they stepped into the company's instaporter...
 
+Alarm's went off everywhere, gaurds started walking towards them with an emotionless face.
 ------------------------------------------
 > ONLY ADD CONTENT ABOVE THE LINE
 
