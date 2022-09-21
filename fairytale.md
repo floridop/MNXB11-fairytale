@@ -18,8 +18,8 @@ stuff. I thought you said you were used to it!"
 "Did I say...? Oh sure, sure! I've seen this before, no problem!" - 
 answered Zo-oZ in a mix of shame and confusion.
 
-As they stepped into the company's instaporter...
-
+As they stepped into the company's instaporter lights flashed before their eyes!
+Smoke filled the room as they exited the instaporter. From the smoke, a shadow appeared...
 ------------------------------------------
 > ONLY ADD CONTENT ABOVE THE LINE
 
