@@ -20,6 +20,19 @@ answered Zo-oZ in a mix of shame and confusion.
 
 As they stepped into the company's instaporter...
 
+They were met with their boss, Yn-nY, who appeared to be distraught in some manner. "I'm glad you're back this is urgent" - said Yn-nY.
+
+Walking down the corridor towards Yn-nY's office, Xa-aX TikTok Brodcaster starts ringing. "Is it supposed to do that?" - said Zo-oZ.
+
+"This have never happend before" - replied Xa-aX.
+
+"Quickly! Destroy it! - yelled Yn-nY.
+
+Without hesitating Xa-aX slammed it in the ground, shattering the device. "What is going on?!" - asked Zo-oZ, whilst still trying to keep it together. 
+
+"This is way above our paygrade" - replied Yn-nY - "You must leave now and speak of this to no one!"
+
+Exiting the instaporter no word was spoken. As Xa-aX and Zo-oZ left they briefly made eye contact before going their seperate ways... 
 ------------------------------------------
 > ONLY ADD CONTENT ABOVE THE LINE
 
