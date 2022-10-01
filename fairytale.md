@@ -20,6 +20,8 @@ answered Zo-oZ in a mix of shame and confusion.
 
 As they stepped into the company's instaporter...
 
+they were greeted by their boss - Director Boss-ssoB. Xa-aX nervously took her space next to her boss and pressed the ground-floor botton on the instaporter. Cold sweats ran down her face...
+
 ------------------------------------------
 > ONLY ADD CONTENT ABOVE THE LINE
 
