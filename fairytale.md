@@ -20,6 +20,10 @@ answered Zo-oZ in a mix of shame and confusion.
 
 As they stepped into the company's instaporter...
 
+Xa-aX tripped, with the TikTok Broadcaster in her pocket falling out 
+and breaking. Zo-oZ was in shock -- all of their hard work getting 
+footage for content was just lost!
+
 ------------------------------------------
 > ONLY ADD CONTENT ABOVE THE LINE
 
