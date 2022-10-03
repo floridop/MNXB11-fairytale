@@ -20,6 +20,32 @@ answered Zo-oZ in a mix of shame and confusion.
 
 As they stepped into the company's instaporter...
 
+The smile of Zo-oZ was changing slowly to a laugh: 
+
+     .---.
+        |   '.|  __
+        | ___.--'  )
+      _.-'_` _%%%_/
+   .-'%%% a: a %%%
+       %%  L   %%_
+       _%\'=' |  /-.__
+    .-' / )--' #/     '\
+   /'  /  /---'(    :   \
+  /   |  /( /|##|  \     |
+ /   ||# | / | /|   \    \
+ |   ||##| I \/ |   |   _|
+ |   ||: | o  |#|   |  / |
+ |   ||  / I  |:/  /   |/
+ |   ||  | o   /  /    /
+ |   \|  | I  |. /    /
+  \  /|##| o  |.|    /
+   \/ \::|/\_ /  ---'|
+    \ |\ |    |     :\
+    | |  /     \...' |
+    | |# |/\    \    |
+    | | :|  |    |   |
+    | |  |  |    |   |
+
 ------------------------------------------
 > ONLY ADD CONTENT ABOVE THE LINE
 
