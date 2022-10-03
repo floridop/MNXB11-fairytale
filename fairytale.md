@@ -9,6 +9,20 @@ As she was doing so, a sudden ray of lighting reflected over the
 Fox Interstellar News logo on the device, blasting instant light on 
 Zo-oZ's terrified expression. 
 
+    ___(                        )
+   (                          _)
+  (_                       __))
+    ((                _____)
+      (_________)----'
+         _/  /
+        /  _/
+      _/  /
+     / __/
+   _/ /
+  /__/
+ //
+/'
+
 "I can believe what we've just seen" - said Zo-oZ - "I hope I will 
 manage to get some sleep tonight..."
 
