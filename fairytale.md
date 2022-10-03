@@ -18,6 +18,8 @@ stuff. I thought you said you were used to it!"
 "Did I say...? Oh sure, sure! I've seen this before, no problem!" - 
 answered Zo-oZ in a mix of shame and confusion.
 
+"Is there something you need to tell me?" asked Xa-aX sensing Zo-oZ was hiding vital information from her.
+
 As they stepped into the company's instaporter...
 
 ------------------------------------------
