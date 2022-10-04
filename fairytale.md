@@ -18,7 +18,12 @@ stuff. I thought you said you were used to it!"
 "Did I say...? Oh sure, sure! I've seen this before, no problem!" - 
 answered Zo-oZ in a mix of shame and confusion.
 
-As they stepped into the company's instaporter...
+As they stepped into the company's instaporter their bodies dematerialized into featureless blobs,
+moments later they emerged at the company headquarters and their bodies returned to their normal form.
+
+"I don't think i will ever get used to these instaporters" - Zo-oZ said with a pale face.
+
+Xa-aX shrugged, "Well it's either that or sit on a space-shuttle for 3 light-years"
 
 ------------------------------------------
 > ONLY ADD CONTENT ABOVE THE LINE
