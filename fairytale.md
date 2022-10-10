@@ -5,9 +5,11 @@
 "I think we're done here" - said Xa-aX while returning in her pocket
 the TikTok Broadcaster after recording the report. 
 
-As she was doing so, a sudden ray of lighting reflected over the 
+The TikTok Broadcaster made a chirp sound while shutting down.
+
+As it was doing so, a sudden ray of lighting reflected over the 
 Fox Interstellar News logo on the device, blasting instant light on 
-Zo-oZ's terrified expression. 
+Zo-oZ's eyes still wide open with terror. 
 
 "I don't want to believe what we've just seen" - said Zo-oZ - "I hope I will 
 manage to get some sleep tonight..."
