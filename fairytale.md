@@ -27,6 +27,7 @@ he found himself in right now. He wondered how Xa-aX had managed to
 keep her cool in the face of what they had just witnessed at the 
 press room of the Johnson Space Center in Houston.
 
+Something about Xa-aX's behavior was a little bit unsettling, and he was starting to feel like something was wrong.
 ------------------------------------------
 > ONLY ADD CONTENT ABOVE THE LINE
 
