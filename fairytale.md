@@ -27,6 +27,8 @@ he found himself in right now. He wondered how Xa-aX had managed to
 keep her cool in the face of what they had just witnessed at the 
 press room of the Johnson Space Center in Houston.
 
+There once lived a man, in Russia long ago, before this story was even
+written
 ------------------------------------------
 > ONLY ADD CONTENT ABOVE THE LINE
 
