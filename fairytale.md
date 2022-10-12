@@ -5,21 +5,26 @@
 "I think we're done here" - said Xa-aX while returning in her pocket
 the TikTok Broadcaster after recording the report. 
 
+The TikTok Broadcaster is used for measuring and attracting stars and
+galaxies. It also makes a chirp sound while shutting down.
+
 As she was doing so, a sudden ray of lighting reflected over the 
 Fox Interstellar News logo on the device, blasting instant light on 
-Zo-oZ's terrified expression. 
+Zo-oZ's eyes still wide open with terror. Fox Interstellar is the company 
+responsible for measuring and reporting on changes in the universe. 
 
-"I can believe what we've just seen" - said Zo-oZ - "I hope I will 
+"I don't want to believe what we've just seen" - said Zo-oZ - "I hope I will 
 manage to get some sleep tonight..."
 
 "I will" - replied Xa-aX - " it ain't the first time I record this 
 stuff. I thought you said you were used to it!"
 
+Even though Xa-aX tried to be brave, she knew that this one was the 
+worst yet. She wanted to put on a brave face though.
+
 "Did I say...? Oh sure, sure! I've seen this before, no problem!" - 
 answered Zo-oZ in a mix of shame and confusion.
 
-As they stepped into the company's instaporter lights flashed before their eyes!
-Smoke filled the room as they exited the instaporter. From the smoke, a shadow appeared...
 ------------------------------------------
 > ONLY ADD CONTENT ABOVE THE LINE
 
@@ -31,5 +36,3 @@ Smoke filled the room as they exited the instaporter. From the smoke, a shadow a
 >> - Where are they going next? 
 >> - Anything that comes to your mind!
 >> - Add ASCII-art if you like! Text only, search google for ASCII-art
-
-
