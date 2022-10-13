@@ -32,14 +32,8 @@ he found himself in right now. He wondered how Xa-aX had managed to
 keep her cool in the face of what they had just witnessed at the 
 press room of the Johnson Space Center in Houston.
 
-
-
-There once lived a man, in Russia long ago, before this story was even
-written
-
-There once lived a man, in Russia long ago. He was
+Before this story was even written, there lived a certain man, in Russia long ago. He was
 big and strong, in his eyes a flaming glow.
-
 
 ------------------------------------------
 > ONLY ADD CONTENT ABOVE THE LINE
