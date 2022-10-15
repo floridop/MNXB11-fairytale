@@ -35,6 +35,7 @@ press room of the Johnson Space Center in Houston.
 Before this story was even written, there lived a certain man, in Russia long ago. He was
 big and strong, in his eyes a flaming glow.
 
+Alarms went off everywhere, guards started screaming like monkeys...
 ------------------------------------------
 > ONLY ADD CONTENT ABOVE THE LINE
 
