@@ -36,9 +36,11 @@ Xa-aX tripped, with the TikTok Broadcaster in her pocket falling out
 and breaking. Zo-oZ was in shock -- all of their hard work getting 
 footage for content was just lost!
 
-There once lived a man, in Russia long ago, before this story was even
-written
-------------------------------------------
+Before this story was even written, there lived a certain man, in Russia long ago. He was
+big and strong, in his eyes a flaming glow.
+
+Alarms went off everywhere, guards started screaming like monkeys...
+
 > ONLY ADD CONTENT ABOVE THE LINE
 
 > Now it's your turn to continue the story. Some suggestions:
