@@ -32,10 +32,17 @@ he found himself in right now. He wondered how Xa-aX had managed to
 keep her cool in the face of what they had just witnessed at the 
 press room of the Johnson Space Center in Houston.
 
-Before this story was even written, there lived a certain man, in Russia long ago. He was
-big and strong, in his eyes a flaming glow.
+Then they were met with their boss, Yn-nY, who appeared to be distraught in some manner. "I'm glad you're back this is urgent" - said Yn-nY.
 
-Most people look at him with terror and with fear.
+Walking down the corridor towards Yn-nY's office, Xa-aX TikTok Brodcaster starts ringing. "Is it supposed to do that?" - said Zo-oZ.
+
+"This have never happend before" - replied Xa-aX.
+
+"Quickly! Destroy it! - yelled Yn-nY.
+
+Without hesitating Xa-aX slammed it in the ground, shattering the device. "What is going on?!" - asked Zo-oZ, whilst still trying to keep it together. 
+
+"This is way above our paygrade" - replied Yn-nY - "You must leave now and speak of this to no one!"
 
 Alarms went off everywhere, guards started screaming like monkeys...
 
@@ -50,6 +57,12 @@ Alarms went off everywhere, guards started screaming like monkeys...
  ||  / /\ \  ||
 _|| _| || |_ ||_
 \|||___||___|||/
+
+
+Before this story was even written, there lived a certain man, in Russia long ago. He was
+big and strong, in his eyes a flaming glow.
+
+Most people look at him with terror and with fear.
 ------------------------------------------
 > ONLY ADD CONTENT ABOVE THE LINE
 
