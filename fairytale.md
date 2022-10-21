@@ -25,10 +25,9 @@ worst yet. She wanted to put on a brave face though.
 "Did I say...? Oh sure, sure! I've seen this before, no problem!" - 
 answered Zo-oZ in a mix of shame and confusion.
 
-As they stepped into the company's instaporter, which would take them
+As they stepped into the company's instaporter, Zo-oZ nervously took his space and pressed the botton on the instaporter which would take them
 back to the headquarters of the Fox Interstellar News Corporation in
-New York City, Zo-oZ had a few minutes to reflect on the situation 
-he found himself in right now. He wondered how Xa-aX had managed to 
+New York City. Cold sweats ran down his face. Zo-oZ had a few minutes to reflect on the situation he found himself in right now. He wondered how Xa-aX had managed to 
 keep her cool in the face of what they had just witnessed at the 
 press room of the Johnson Space Center in Houston.
 
