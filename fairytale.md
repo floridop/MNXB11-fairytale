@@ -18,7 +18,7 @@ stuff. I thought you said you were used to it!"
 "Did I say...? Oh sure, sure! I've seen this before, no problem!" - 
 answered Zo-oZ in a mix of shame and confusion.
 
-As they stepped into the company's instaporter...
+As they stepped into the company's instaporter, the lights of the surrounding lamps started blurring and fading. A strange feeling came over Zo-oZ.
 
 ------------------------------------------
 > ONLY ADD CONTENT ABOVE THE LINE
