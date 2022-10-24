@@ -45,6 +45,7 @@ Without hesitating Xa-aX slammed it in the ground, shattering the device. "What 
 
 Alarms went off everywhere, guards started screaming like monkeys...
 
+```
        __    EEEK!
       /  \   ~~|~~
      (|00|)    |
@@ -57,6 +58,7 @@ Alarms went off everywhere, guards started screaming like monkeys...
 _|| _| || |_ ||_
 \|||___||___|||/
 
+```
 
 Before this story was even written, there lived a certain man, in Russia long ago. He was
 big and strong, in his eyes a flaming glow.
