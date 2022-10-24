@@ -19,6 +19,9 @@ stuff. I thought you said you were used to it!"
 answered Zo-oZ in a mix of shame and confusion.
 
 As they stepped into the company's instaporter...
+"Was it werid that you had seen it before, what is your feeling when you first witnessed it?"
+"Of course i am scared at first, i do not want to experience that once again if i can choose."
+The Instaporter act as a PR in instagram that manage the user's quality and make sure the atmosphere in instgram is positive enough.
 
 ------------------------------------------
 > ONLY ADD CONTENT ABOVE THE LINE
