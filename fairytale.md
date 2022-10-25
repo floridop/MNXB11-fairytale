@@ -5,25 +5,73 @@
 "I think we're done here" - said Xa-aX while returning in her pocket
 the TikTok Broadcaster after recording the report. 
 
+The TikTok Broadcaster is used for measuring and attracting stars and
+galaxies. It also makes a chirp sound while shutting down.
+
 As she was doing so, a sudden ray of lighting reflected over the 
 Fox Interstellar News logo on the device, blasting instant light on 
-Zo-oZ's terrified expression. 
+Zo-oZ's eyes still wide open with terror. Fox Interstellar is the company 
+responsible for measuring and reporting on changes in the universe. 
 
-"I can believe what we've just seen" - said Zo-oZ - "I hope I will 
+"I don't want to believe what we've just seen" - said Zo-oZ - "I hope I will 
 manage to get some sleep tonight..."
 
 "I will" - replied Xa-aX - " it ain't the first time I record this 
 stuff. I thought you said you were used to it!"
 
+Even though Xa-aX tried to be brave, she knew that this one was the 
+worst yet. She wanted to put on a brave face though.
+
 "Did I say...? Oh sure, sure! I've seen this before, no problem!" - 
 answered Zo-oZ in a mix of shame and confusion.
 
-As they stepped into the company's instaporter Zo-oZ could see the fear in Xa-aX's face. She is a young woman in his fifty's with brown eyes, dark hair and a well-defined jaw. We could consider Xa-aX as a pretty woman for the earthling but for the people in Athenea is an average person. 
+As they stepped into the company's instaporter, Zo-oZ nervously took his space and pressed the botton on the instaporter which would take them
+back to the headquarters of the Fox Interstellar News Corporation in
+New York City. Cold sweats ran down his face. Zo-oZ had a few minutes to reflect on the situation he found himself in right now. He wondered how Xa-aX had managed to 
+keep her cool in the face of what they had just witnessed at the 
+press room of the Johnson Space Center in Houston.
 
--Are you okey?-asked Zo-oZ. He is almost 150 years, he is a tall man with grey hair, and a big smile. He is close to retirement after a career as a galaxy reporter, now he has to teach everything he knows to Xa-aX. 
--Yes, I am fine. It is just that I was shocked because of your reaction. -answered Xa-aX just before the instaporter started to work.
 
-Few minutes later they were in Athenea, one of the Earth colonies'. As soon as they arrived to the instaporter's station a ship was waiting for them... 
+Something about Xa-aX's behavior was a little bit unsettling, and he was starting to feel like something was wrong.
+
+Then they were met with their boss, Yn-nY, who appeared to be distraught in some manner. "I'm glad you're back this is urgent" - said Yn-nY.
+
+Walking down the corridor towards Yn-nY's office, Xa-aX TikTok Brodcaster starts ringing. "Is it supposed to do that?" - said Zo-oZ.
+
+"This have never happend before" - replied Xa-aX.
+
+"Quickly! Destroy it! - yelled Yn-nY.
+
+Without hesitating Xa-aX slammed it in the ground, shattering the device. "What is going on?!" - asked Zo-oZ, whilst still trying to keep it together. 
+
+"This is way above our paygrade" - replied Yn-nY - "You must leave now and speak of this to no one!"
+
+Alarms went off everywhere, guards started screaming like monkeys...
+
+```
+       __    EEEK!
+      /  \   ~~|~~
+     (|00|)    |
+      (==)  --/
+    ___||___
+   / _ .. _ \
+  //  |  |  \\
+ //   |  |   \\
+ ||  / /\ \  ||
+_|| _| || |_ ||_
+\|||___||___|||/
+
+```
+
+Before this story was even written, there lived a certain man, in Russia long ago. He was
+big and strong, in his eyes a flaming glow.
+(Possible soundtrack for this part of the story
+Source: https://www.youtube.com/watch?v=16y1AkoZkmQ)
+
+Most people look at him with terror and with fear, but to Moscow chicks he was such a lovely dear. 
+
+This man lived 200 years before this story happened, he was an inventor and he was inspired by Tesla and Einstein in order to pursue his vision of perfect humankind. However, he was a narcisist and he was unable to content his anger. 
+
 
 ------------------------------------------
 > ONLY ADD CONTENT ABOVE THE LINE
@@ -36,5 +84,3 @@ Few minutes later they were in Athenea, one of the Earth colonies'. As soon as t
 >> - Where are they going next? 
 >> - Anything that comes to your mind!
 >> - Add ASCII-art if you like! Text only, search google for ASCII-art
-
-
