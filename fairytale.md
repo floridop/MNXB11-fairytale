@@ -31,6 +31,9 @@ New York City. Cold sweats ran down his face. Zo-oZ had a few minutes to reflect
 keep her cool in the face of what they had just witnessed at the 
 press room of the Johnson Space Center in Houston.
 
+
+Something about Xa-aX's behavior was a little bit unsettling, and he was starting to feel like something was wrong.
+
 Then they were met with their boss, Yn-nY, who appeared to be distraught in some manner. "I'm glad you're back this is urgent" - said Yn-nY.
 
 Walking down the corridor towards Yn-nY's office, Xa-aX TikTok Brodcaster starts ringing. "Is it supposed to do that?" - said Zo-oZ.
@@ -63,7 +66,8 @@ _|| _| || |_ ||_
 Before this story was even written, there lived a certain man, in Russia long ago. He was
 big and strong, in his eyes a flaming glow.
 
-Most people look at him with terror and with fear.
+Most people look at him with terror and with fear, but to Moscow chicks he was such a lovely dear. 
+
 ------------------------------------------
 > ONLY ADD CONTENT ABOVE THE LINE
 
