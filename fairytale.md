@@ -65,8 +65,13 @@ _|| _| || |_ ||_
 
 Before this story was even written, there lived a certain man, in Russia long ago. He was
 big and strong, in his eyes a flaming glow.
+(Possible soundtrack for this part of the story
+Source: https://www.youtube.com/watch?v=16y1AkoZkmQ)
 
 Most people look at him with terror and with fear, but to Moscow chicks he was such a lovely dear. 
+
+This man lived 200 years before this story happened, he was an inventor and he was inspired by Tesla and Einstein in order to pursue his vision of perfect humankind. However, he was a narcisist and he was unable to content his anger. 
+
 
 ------------------------------------------
 > ONLY ADD CONTENT ABOVE THE LINE
