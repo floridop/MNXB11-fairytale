@@ -12,7 +12,7 @@ Zo-oZ's terrified expression.
 "I can believe what we've just seen" - said Zo-oZ - "I hope I will 
 manage to get some sleep tonight..."
 
-"I will" - replied Xa-aX - " it ain't the first time I record this 
+"I will" - replied Xa-aX - "It ain't the first time I record this 
 stuff. I thought you said you were used to it!"
 
 "Did I say...? Oh sure, sure! I've seen this before, no problem!" - 
