@@ -25,6 +25,12 @@ worst yet. She wanted to put on a brave face though.
 "Did I say...? Oh sure, sure! I've seen this before, no problem!" - 
 answered Zo-oZ in a mix of shame and confusion.
 
+
+They continue their conversation...
+"Was it werid that you had seen it before, what is your feeling when you first witnessed it?"
+"Of course i am scared at first, i do not want to experience that once again if i can choose."
+The Instaporter act as a PR in instagram that manage the user's quality and make sure the atmosphere in instgram is positive enough.
+
 As they stepped into the company's instaporter, Zo-oZ nervously took his space and pressed the botton on the instaporter which would take them
 back to the headquarters of the Fox Interstellar News Corporation in
 New York City. Cold sweats ran down his face. Zo-oZ had a few minutes to reflect on the situation he found himself in right now. He wondered how Xa-aX had managed to 
@@ -71,6 +77,8 @@ Source: https://www.youtube.com/watch?v=16y1AkoZkmQ)
 Most people look at him with terror and with fear, but to Moscow chicks he was such a lovely dear. 
 
 This man lived 200 years before this story happened, he was an inventor and he was inspired by Tesla and Einstein in order to pursue his vision of perfect humankind. However, he was a narcisist and he was unable to content his anger. 
+
+Most people look at him with terror and with fear.
 
 
 ------------------------------------------
