@@ -16,7 +16,7 @@ responsible for measuring and reporting on changes in the universe.
 "I don't want to believe what we've just seen" - said Zo-oZ - "I hope I will 
 manage to get some sleep tonight..."
 
-"I will" - replied Xa-aX - " it ain't the first time I record this 
+"I will" - replied Xa-aX - "It ain't the first time I record this 
 stuff. I thought you said you were used to it!"
 
 Even though Xa-aX tried to be brave, she knew that this one was the 
@@ -25,7 +25,6 @@ worst yet. She wanted to put on a brave face though.
 "Did I say...? Oh sure, sure! I've seen this before, no problem!" - 
 answered Zo-oZ in a mix of shame and confusion.
 
-
 They continue their conversation...
 "Was it werid that you had seen it before, what is your feeling when you first witnessed it?"
 "Of course i am scared at first, i do not want to experience that once again if i can choose."
@@ -33,9 +32,11 @@ The Instaporter act as a PR in instagram that manage the user's quality and make
 
 As they stepped into the company's instaporter, Zo-oZ nervously took his space and pressed the botton on the instaporter which would take them
 back to the headquarters of the Fox Interstellar News Corporation in
-New York City. Cold sweats ran down his face. Zo-oZ had a few minutes to reflect on the situation he found himself in right now. He wondered how Xa-aX had managed to 
+New York City. Xa-aX's TikTok Broadcaster
+started bipping. People was chocked by the news. "It seems that perhaps some people will not get some sleep...
+as I was trying to say before." said Zo-oZ carefully. Cold sweats ran down his face. Zo-oZ had a few minutes to reflect on the situation he found himself in right now. He wondered how Xa-aX had managed to 
 keep her cool in the face of what they had just witnessed at the 
-press room of the Johnson Space Center in Houston.
+press room of the Johnson Space Center in Houston. Zo-oZ phone starts ringing, they gasp, "It's Fox calling."
 
 
 Something about Xa-aX's behavior was a little bit unsettling, and he was starting to feel like something was wrong.
