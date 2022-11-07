@@ -78,6 +78,25 @@ Source: https://www.youtube.com/watch?v=16y1AkoZkmQ)
 Most people look at him with terror and with fear, but to Moscow chicks he was such a lovely dear. 
 
 This man lived 200 years before this story happened, he was an inventor and he was inspired by Tesla and Einstein in order to pursue his vision of perfect humankind. However, he was a narcisist and he was unable to content his anger. 
+
+There was only one thing that could calm down this man... Something that he constantly craves for..
+
+```
+       __    GIVE ME THE GABAGOOOOOOOL!
+      /  \   ~~|~~~~~~~~~~~~~~~~~~~~~~
+     (|00|)    |
+      (==)  --/
+    ___||___
+   / _ .. _ \
+  //  |  |  \\
+ //   |  |   \\
+ ||  / /\ \  ||
+_|| _| || |_ ||_
+\|||___||___|||/
+
+```
+
+
 ------------------------------------------
 > ONLY ADD CONTENT ABOVE THE LINE
 
