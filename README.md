@@ -1,2 +1,2 @@
-# MNXB01-fairytale
-collaborative exercise for MNXB01
+# MNXB11-fairytale
+collaborative exercise for MNXB11
