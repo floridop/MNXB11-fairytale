@@ -61,5 +61,6 @@ as the vehicle started heading towards Gerda Hill.
 >> - What does a SailWheel look like?
 >> - What are these creatures like?
 >> - Where is this story taking place?
+>> - You can add any new character or plot twist that you fancy.
 >> - Anything that comes to your mind!
 >> - Add ASCII-art if you like! Text only, search Google for ASCII-art
