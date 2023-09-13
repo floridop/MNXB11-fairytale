@@ -48,6 +48,8 @@ Weathershield now"
 Sealed the airlock, opened the Sail, and the wheels screamed
 as the vehicle started heading towards Gerda Hill.
 
+As they arrived at Gerda Hill they stopped at the top for a few minutes. It was not one of the tallers hills in the area, so not much could be seen. Yet it was still magnificent in its own way.
+
 ------------------------------------------
 > ONLY ADD CONTENT ABOVE THE ABOVE LINE
 
