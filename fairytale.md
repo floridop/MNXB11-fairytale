@@ -48,6 +48,9 @@ Weathershield now"
 Sealed the airlock, opened the Sail, and the wheels screamed
 as the vehicle started heading towards Gerda Hill.
 
+As the vehicle moved forward against the strong winds carrying waves of abraisive sand.
+The silhuet of the WeatherShild showed up as a small black dot on the horizone.
+
 ------------------------------------------
 > ONLY ADD CONTENT ABOVE THE ABOVE LINE
 
