@@ -21,6 +21,10 @@ The weather had been like that for almost 20 years after the waters
 retired, leaving large acres of land as a desert, and only
 hills here and there where populated by living creatures, biological or not.
 
+The ones old enough to remember told fantastic stories of oceans, where
+the water flowed freely and abundantly. Some say that they even tried to harness 
+the power of these oceans.
+
 Water powered energy was a thing of the past. Only the unresting sun
 and the terrible winds were left.
 
