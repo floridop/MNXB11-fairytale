@@ -21,6 +21,8 @@ The weather had been like that for almost 20 years after the waters
 retired, leaving large acres of land as a desert, and only
 hills here and there where populated by living creatures, biological or not.
 
+Cyclops, piles of goo or a mix of the once existing creatures of the past could be seen. Dangerous or not, nobody wanted to find out. Everything was the result of the radiation of the last nuclear wars, so the creatures didn't even worked as food. 
+
 Water powered energy was a thing of the past. Only the unresting sun
 and the terrible winds were left.
 
