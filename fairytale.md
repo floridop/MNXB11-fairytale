@@ -48,6 +48,7 @@ Weathershield now"
 Sealed the airlock, opened the Sail, and the wheels screamed
 as the vehicle started heading towards Gerda Hill.
 
+Sandstorms have wind speeds of at least 40 kilometers per hour
 ------------------------------------------
 > ONLY ADD CONTENT ABOVE THE ABOVE LINE
 
