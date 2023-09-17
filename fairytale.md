@@ -48,6 +48,8 @@ Weathershield now"
 Sealed the airlock, opened the Sail, and the wheels screamed
 as the vehicle started heading towards Gerda Hill.
 
+As Murray's vehicle sped towards Gerda Hill, the sandstorm raged around them, making the journey treacherous. The air was thick with swirling sand, reducing visibility to almost zero. The mighty winds howled, and the temperature soared, making the inside of the vehicle feel like an oven.
+
 ------------------------------------------
 > ONLY ADD CONTENT ABOVE THE ABOVE LINE
 
