@@ -48,6 +48,8 @@ Weathershield now"
 Sealed the airlock, opened the Sail, and the wheels screamed
 as the vehicle started heading towards Gerda Hill.
 
+But after just a few minutes of traveling, the vehicle suddently came to a abrupt stop.
+
 ------------------------------------------
 > ONLY ADD CONTENT ABOVE THE ABOVE LINE
 
