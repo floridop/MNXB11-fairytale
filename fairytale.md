@@ -48,6 +48,7 @@ Weathershield now"
 Sealed the airlock, opened the Sail, and the wheels screamed
 as the vehicle started heading towards Gerda Hill.
 
+The storms created can be of a violent nature. Not like any storm planet Earth has seen before. The WeatherShield was developed to prevent disasters from happening, but it is far from perfect since it is a human made technology. While most things are built by AI, the only well made WeatherSheild is built by man. 
 ------------------------------------------
 > ONLY ADD CONTENT ABOVE THE ABOVE LINE
 
