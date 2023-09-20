@@ -48,6 +48,7 @@ Weathershield now"
 Sealed the airlock, opened the Sail, and the wheels screamed
 as the vehicle started heading towards Gerda Hill.
 
+In the roaring wind the destination quickly grew closer as the thunder of debris smaching against the Weathershield increased in intensity.
 ------------------------------------------
 > ONLY ADD CONTENT ABOVE THE ABOVE LINE
 
