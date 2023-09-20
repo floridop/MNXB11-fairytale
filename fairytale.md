@@ -3,7 +3,7 @@
 -------------------------------------------
 
 They could see the sandstorm approaching on the horizon as the noon sun
-started to hit its 52+ degrees out there.
+started to hit its 52+ degrees out there. The sandstorms are relentless, unpredictable, and incredibly destructive.
 
 From the top of Gerda Hill the WheatherShield started charging, converging 
 its rays into a semisphere that would protect the area for a radius of 50km. 
@@ -47,6 +47,7 @@ Weathershield now"
 
 Sealed the airlock, opened the Sail, and the wheels screamed
 as the vehicle started heading towards Gerda Hill.
+
 
 ------------------------------------------
 > ONLY ADD CONTENT ABOVE THE ABOVE LINE
