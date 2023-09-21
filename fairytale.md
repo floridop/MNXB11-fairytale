@@ -19,7 +19,7 @@ the weirdest stuff to fly around"
 
 The weather had been like that for almost 20 years after the waters
 retired, leaving large acres of land as a desert, and only
-hills here and there where populated by living creatures, biological or not.
+hills here and there were populated by living creatures, biological or not.
 
 Water powered energy was a thing of the past. Only the unresting sun
 and the terrible winds were left.
@@ -44,6 +44,8 @@ there for the bar either.
 
 "Well" - they thought - "I guess it's really time to go check that
 Weathershield now"
+
+As Murray raced toward Gerda Hill under the scorching sun, their determination mirrored the intensifying heat. Beads of sweat glistened on their face as they pushed the Sailwheel to its limits.
 
 Sealed the airlock, opened the Sail, and the wheels screamed
 as the vehicle started heading towards Gerda Hill.
