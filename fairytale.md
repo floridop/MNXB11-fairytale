@@ -48,6 +48,8 @@ Weathershield now"
 Sealed the airlock, opened the Sail, and the wheels screamed
 as the vehicle started heading towards Gerda Hill.
 
+"Murray!" screamed a familiar voice. "Planning on leaving me behind?" Appearing from the dense sandstorm was a forgotten face, "James Gunn", a retired veteran, and more importantly, Murray's childhood best friend.
+
 ------------------------------------------
 > ONLY ADD CONTENT ABOVE THE ABOVE LINE
 
