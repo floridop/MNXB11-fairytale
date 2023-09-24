@@ -48,6 +48,10 @@ Weathershield now"
 Sealed the airlock, opened the Sail, and the wheels screamed
 as the vehicle started heading towards Gerda Hill.
 
+The WeatherShields were built before the drying event, to combat different 
+weather anomalies. But what was once an anomaly has now become the 
+new climate -  and old tech can not keep up with it. 
+
 ------------------------------------------
 > ONLY ADD CONTENT ABOVE THE ABOVE LINE
 
