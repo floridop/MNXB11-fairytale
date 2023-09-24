@@ -48,6 +48,7 @@ Weathershield now"
 Sealed the airlock, opened the Sail, and the wheels screamed
 as the vehicle started heading towards Gerda Hill.
 
+Everything is going to be fine.
 ------------------------------------------
 > ONLY ADD CONTENT ABOVE THE ABOVE LINE
 
