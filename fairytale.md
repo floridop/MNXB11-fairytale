@@ -37,6 +37,10 @@ It happened again. The WheatherShield shut down for a moment, and
 just for enough time for the extraordinary object to close the
 establishment for an undefinite amount of time.
 
+And there he is, Murray, the one grumpy captain we all fancy to have in our crews.
+
+He looks even extra grumpy today, as if someone took all the tuna in his tuna salad which he always have for lunch, monday to friday.
+
 Murray was still frantically messing up with his Sailwheel control
 panel when he saw the whole event unfolding in front of his eyes.
 Saving these people was not exactly their business. They weren't 
