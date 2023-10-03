@@ -21,6 +21,10 @@ The weather had been like that for almost 20 years after the waters
 retired, leaving large acres of land as a desert, and only
 hills here and there where populated by living creatures, biological or not.
 
+Most of these creatures could survive with the least of water.
+
+The biomechanical ones would search for other energy sources depending on their design.
+
 Water powered energy was a thing of the past. Only the unresting sun
 and the terrible winds were left.
 
