@@ -25,9 +25,9 @@ Most of these creatures could survive with the least of water.
 
 The biomechanical ones would search for other energy sources depending on their design.
 
-Some theorized that one could follow these biomechanical creatures tracks to water power plants in order to find water. Sadly however
+Some theorized that one could follow these biomechanical creatures tracks to water power plants in order to find water. 
 
-Water powered energy was a thing of the past. Only the unresting sun
+Sadly however, water powered energy was a thing of the past. Only the unresting sun
 and the terrible winds were left.
 
 As the tickness of the sandstorm made the sky dark, they didn't 
