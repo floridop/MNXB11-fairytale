@@ -52,8 +52,8 @@ there for the bar either.
 Weathershield now"
 
 Sealed the airlock, opened the Sail, and the wheels screamed
-as the vehicle started heading towards Gerda Hill.
-
+as the vehicle started heading towards Gerda Hill,
+up and down over the sandy dunes.
 ------------------------------------------
 > ONLY ADD CONTENT ABOVE THE ABOVE LINE
 
