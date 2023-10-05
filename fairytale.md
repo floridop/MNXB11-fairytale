@@ -47,6 +47,7 @@ Weathershield now"
 
 Sealed the airlock, opened the Sail, and the wheels screamed
 as the vehicle started heading towards Gerda Hill.
+In that moment, as the vehicle roared toward the heart of Gerda Hill, it felt as though they were not merely explorers of a distant planet but pioneers of the universe itself, driven by a burning desire to uncover the enigmas of existence.
 
 ------------------------------------------
 > ONLY ADD CONTENT ABOVE THE ABOVE LINE
