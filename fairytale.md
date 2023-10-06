@@ -54,6 +54,8 @@ Weathershield now"
 Sealed the airlock, opened the Sail, and the wheels screamed
 as the vehicle started heading towards Gerda Hill,
 up and down over the sandy dunes.
+
+As they went forward the sand blew against the windshield of the vehicle. Suddenly, small cracks began  to appear in the glass.
 ------------------------------------------
 > ONLY ADD CONTENT ABOVE THE ABOVE LINE
 
