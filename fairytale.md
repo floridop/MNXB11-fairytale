@@ -21,7 +21,13 @@ The weather had been like that for almost 20 years after the waters
 retired, leaving large acres of land as a desert, and only
 hills here and there where populated by living creatures, biological or not.
 
-Water powered energy was a thing of the past. Only the unresting sun
+Most of these creatures could survive with the least of water.
+
+The biomechanical ones would search for other energy sources depending on their design.
+
+Some theorized that one could follow these biomechanical creatures tracks to water power plants in order to find water. 
+
+Sadly however, water powered energy was a thing of the past. Only the unresting sun
 and the terrible winds were left.
 
 As the tickness of the sandstorm made the sky dark, they didn't 
@@ -46,10 +52,11 @@ there for the bar either.
 Weathershield now"
 
 Sealed the airlock, opened the Sail, and the wheels screamed
-as the vehicle started heading towards Gerda Hill.
+as the vehicle started heading towards Gerda Hill,
+up and down over the sandy dunes.
 
-As the vehicle moved forward against the strong winds carrying waves of abraisive sand.
-The silhuet of the WeatherShild showed up as a small black dot on the horizone.
+
+As the vehicle moved forward against the strong winds carrying waves of abraisive sand. Small cracks began  to appear in the glass.The silhuet of the WeatherShild, only visible as a small black dot on the horizone, seemed so far away.
 
 ------------------------------------------
 > ONLY ADD CONTENT ABOVE THE ABOVE LINE
