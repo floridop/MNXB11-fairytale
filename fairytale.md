@@ -55,7 +55,9 @@ Sealed the airlock, opened the Sail, and the wheels screamed
 as the vehicle started heading towards Gerda Hill,
 up and down over the sandy dunes.
 
-As they went forward the sand blew against the windshield of the vehicle. Suddenly, small cracks began  to appear in the glass.
+
+As the vehicle moved forward against the strong winds carrying waves of abraisive sand. Small cracks began  to appear in the glass.The silhuet of the WeatherShild, only visible as a small black dot on the horizone, seemed so far away.
+
 ------------------------------------------
 > ONLY ADD CONTENT ABOVE THE ABOVE LINE
 
