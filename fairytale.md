@@ -21,7 +21,15 @@ The weather had been like that for almost 20 years after the waters
 retired, leaving large acres of land as a desert, and only
 hills here and there where populated by living creatures, biological or not.
 
-Water powered energy was a thing of the past. Only the unresting sun
+Cyclops, piles of goo or a mix of the once existing creatures of the past could be seen. Dangerous or not, nobody wanted to find out. Everything was the result of the radiation of the last nuclear wars, so the creatures didn't even worked as food. 
+
+Most of these creatures could survive with the least of water.
+
+The biomechanical ones would search for other energy sources depending on their design.
+
+Some theorized that one could follow these biomechanical creatures tracks to water power plants in order to find water. 
+
+Sadly however, water powered energy was a thing of the past. Only the unresting sun
 and the terrible winds were left.
 
 As the thickness of the sandstorm made the sky dark, they didn't 
@@ -46,13 +54,15 @@ there for the bar either.
 Weathershield now"
 
 Sealed the airlock, opened the Sail, and the wheels screamed
-as the vehicle started heading towards Gerda Hill.
+as the vehicle started heading towards Gerda Hill,
+up and down over the sandy dunes.
 
 As Murray speeded towards Gerda Hill in his vehicle, he couldn't shake 
 the nagging feeling that something wasn't right. He couldn't help but 
 wonder if the incident at the SailTyres bar was a mere coincidence or 
 a part of a larger puzzle.
 
+As the vehicle moved forward against the strong winds carrying waves of abraisive sand. Small cracks began  to appear in the glass.The silouhuette of the WeatherShield, only visible as a small black dot on the horizon, seemed so far away.
 ------------------------------------------
 > ONLY ADD CONTENT ABOVE THE ABOVE LINE
 
