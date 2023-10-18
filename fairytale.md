@@ -32,7 +32,7 @@ Some theorized that one could follow these biomechanical creatures tracks to wat
 Sadly however, water powered energy was a thing of the past. Only the unresting sun
 and the terrible winds were left.
 
-As the tickness of the sandstorm made the sky dark, they didn't 
+As the thickness of the sandstorm made the sky dark, they didn't 
 really realize what shape the last shadow casted on the windows 
 of the bar.
 
@@ -43,7 +43,7 @@ destroying half of the building.
 
 It happened again. The WheatherShield shut down for a moment, and
 just for enough time for the extraordinary object to close the
-establishment for an undefinite amount of time.
+establishment for an indefinite amount of time.
 
 Murray was still frantically messing up with his Sailwheel control
 panel when he saw the whole event unfolding in front of his eyes.
@@ -56,6 +56,11 @@ Weathershield now"
 Sealed the airlock, opened the Sail, and the wheels screamed
 as the vehicle started heading towards Gerda Hill,
 up and down over the sandy dunes.
+
+As Murray speeded towards Gerda Hill in his vehicle, he couldn't shake 
+the nagging feeling that something wasn't right. He couldn't help but 
+wonder if the incident at the SailTyres bar was a mere coincidence or 
+a part of a larger puzzle.
 
 As the vehicle moved forward against the strong winds carrying waves of abraisive sand. Small cracks began  to appear in the glass.The silouhuette of the WeatherShield, only visible as a small black dot on the horizon, seemed so far away.
 ------------------------------------------
