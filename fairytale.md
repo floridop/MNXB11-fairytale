@@ -52,7 +52,7 @@ there for the bar either.
 
 "Well" - they thought - "I guess it's really time to go check that
 Weathershield now"
-
+It took a few minutes to check all the onboard controls.
 Sealed the airlock, opened the Sail, and the wheels screamed
 as the vehicle started heading towards Gerda Hill,
 up and down over the sandy dunes.
