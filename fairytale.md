@@ -44,7 +44,7 @@ destroying half of the building.
 It happened again. The WheatherShield shut down for a moment, and
 just for enough time for the extraordinary object to close the
 establishment for an indefinite amount of time.
-
+Although this events could be expected, they were hard to predict.
 Murray was still frantically messing up with his Sailwheel control
 panel when he saw the whole event unfolding in front of his eyes.
 Saving these people was not exactly their business. They weren't 
