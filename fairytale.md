@@ -57,10 +57,8 @@ Sealed the airlock, opened the Sail, and the wheels screamed
 as the vehicle started heading towards Gerda Hill,
 up and down over the sandy dunes.
 
-<<<<<<< HEAD
 "Murray!" screamed a familiar voice. "Planning on leaving me behind?" Appearing from the dense sandstorm was a forgotten face, "James Gunn", a retired veteran, and more importantly, Murray's childhood best friend.
 
-=======
 The storms created can be of a violent nature. Not like any storm planet Earth has seen before. The WeatherShield was developed to prevent disasters from happening, but it is far from perfect since it is a human made technology. While most things are built by AI, the only well made WeatherSheild is built by man. 
 As Murray speeded towards Gerda Hill in his vehicle, he couldn't shake 
 the nagging feeling that something wasn't right. He couldn't help but 
@@ -68,7 +66,6 @@ wonder if the incident at the SailTyres bar was a mere coincidence or
 a part of a larger puzzle.
 
 As the vehicle moved forward against the strong winds carrying waves of abraisive sand. Small cracks began  to appear in the glass.The silouhuette of the WeatherShield, only visible as a small black dot on the horizon, seemed so far away.
->>>>>>> main
 ------------------------------------------
 > ONLY ADD CONTENT ABOVE THE ABOVE LINE
 
