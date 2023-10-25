@@ -57,6 +57,9 @@ Sealed the airlock, opened the Sail, and the wheels screamed
 as the vehicle started heading towards Gerda Hill,
 up and down over the sandy dunes.
 
+The WeatherShields were built before the drying event, to combat different 
+weather anomalies. But what was once an anomaly has now become the 
+new climate -  and old tech can not keep up with it. 
 
 The storms created can be of a violent nature. Not like any storm planet Earth has seen before. The WeatherShield was developed to prevent disasters from happening, but it is far from perfect since it is a human made technology. While most things are built by AI, the only well made WeatherSheild is built by man. 
 As Murray speeded towards Gerda Hill in his vehicle, he couldn't shake 
@@ -64,6 +67,7 @@ the nagging feeling that something wasn't right. He couldn't help but
 wonder if the incident at the SailTyres bar was a mere coincidence or 
 a part of a larger puzzle.
 
+As Murray's vehicle sped towards Gerda Hill, the sandstorm raged around them, making the journey treacherous. The air was thick with swirling sand, reducing visibility to almost zero. The mighty winds howled, and the temperature soared, making the inside of the vehicle feel like an oven.
 As the vehicle moved forward against the strong winds carrying waves of abraisive sand. Small cracks began  to appear in the glass.The silouhuette of the WeatherShield, only visible as a small black dot on the horizon, seemed so far away.
 
 In the roaring wind the destination quickly grew closer as the thunder of debris smaching against the Weathershield increased in intensity.
