@@ -1,5 +1,6 @@
--------------------------------------------
- Burning SailWheels : A collaborative story
+@@ -1,6 +1,5 @@
+ -------------------------------------------
+  Burning SailWheels : A collaborative story
 
 They could see the sandstorm approaching on the horizon as the noon sun
 started to hit its 52+ degrees out there.
