@@ -61,6 +61,8 @@ The WeatherShields were built before the drying event, to combat different
 weather anomalies. But what was once an anomaly has now become the 
 new climate -  and old tech can not keep up with it. 
 
+"Murray!" screamed a familiar voice. "Planning on leaving me behind?" Appearing from the dense sandstorm was a forgotten face, "James Gunn", a retired veteran, and more importantly, Murray's childhood best friend.
+
 The storms created can be of a violent nature. Not like any storm planet Earth has seen before. The WeatherShield was developed to prevent disasters from happening, but it is far from perfect since it is a human made technology. While most things are built by AI, the only well made WeatherSheild is built by man. 
 As Murray speeded towards Gerda Hill in his vehicle, he couldn't shake 
 the nagging feeling that something wasn't right. He couldn't help but 
