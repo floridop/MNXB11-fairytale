@@ -75,7 +75,6 @@ As the vehicle moved forward against the strong winds carrying waves of abraisiv
 In the roaring wind the destination quickly grew closer as the thunder of debris smashing against the Weathershield increased in intensity.
 
 Then suddently, the vehicle sighed as it stopped abruptly.
-
 ------------------------------------------
 > ONLY ADD CONTENT ABOVE THE ABOVE LINE
 
