@@ -76,6 +76,8 @@ In the roaring wind the destination quickly grew closer as the thunder of debris
 
 Then suddently, the vehicle sighed as it stopped abruptly.
 
+They flew across the sands, swirving to avoid the large mechanical constructs roaming the desolate plains.
+
 ------------------------------------------
 > ONLY ADD CONTENT ABOVE THE ABOVE LINE
 
