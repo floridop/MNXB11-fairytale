@@ -73,6 +73,9 @@ As Murray's vehicle sped towards Gerda Hill, the sandstorm raged around them, ma
 As the vehicle moved forward against the strong winds carrying waves of abraisive sand. Small cracks began  to appear in the glass.The silouhuette of the WeatherShield, only visible as a small black dot on the horizon, seemed so far away.
 
 In the roaring wind the destination quickly grew closer as the thunder of debris smashing against the Weathershield increased in intensity.
+
+Then suddently, the vehicle sighed as it stopped abruptly.
+
 ------------------------------------------
 > ONLY ADD CONTENT ABOVE THE ABOVE LINE
 
