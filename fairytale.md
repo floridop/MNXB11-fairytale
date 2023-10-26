@@ -74,6 +74,7 @@ As the vehicle moved forward against the strong winds carrying waves of abraisiv
 
 In the roaring wind the destination quickly grew closer as the thunder of debris smaching against the Weathershield increased in intensity.
 
+Sandstorms have wind speeds of at least 40 kilometers per hour
 ------------------------------------------
 > ONLY ADD CONTENT ABOVE THE ABOVE LINE
 
