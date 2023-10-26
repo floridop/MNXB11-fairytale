@@ -74,6 +74,7 @@ As the vehicle moved forward against the strong winds carrying waves of abraisiv
 
 In the roaring wind the destination quickly grew closer as the thunder of debris smaching against the Weathershield increased in intensity.
 
+Everything is going to be fine.
 ------------------------------------------
 > ONLY ADD CONTENT ABOVE THE ABOVE LINE
 
