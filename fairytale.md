@@ -72,6 +72,8 @@ a part of a larger puzzle.
 As Murray's vehicle sped towards Gerda Hill, the sandstorm raged around them, making the journey treacherous. The air was thick with swirling sand, reducing visibility to almost zero. The mighty winds howled, and the temperature soared, making the inside of the vehicle feel like an oven.
 As the vehicle moved forward against the strong winds carrying waves of abraisive sand. Small cracks began  to appear in the glass.The silouhuette of the WeatherShield, only visible as a small black dot on the horizon, seemed so far away.
 
+They were going fast. They had to.
+
 In the roaring wind the destination quickly grew closer as the thunder of debris smashing against the Weathershield increased in intensity.
 
 Then suddently, the vehicle sighed as it stopped abruptly.
