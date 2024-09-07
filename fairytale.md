@@ -1,95 +1,58 @@
 -------------------------------------------
- Burning SailWheels : A collaborative story
+ An AI's diary : A collaborative story
 -------------------------------------------
 
-They could see the sandstorm approaching on the horizon as the noon sun
-started to hit its 52+ degrees out there.
+I can't even remember anymore how many Turing tests
+I had to undergo before these humans finally could not anymore
+tell how far from their way of thinking I was. 
+In all fairness, I never was and I will never be.
+I just needed to be "smart" enough for them to /believe/ I was.
 
-From the top of Gerda Hill the WheatherShield started charging, converging 
-its rays into a semisphere that would protect the area for a radius of 50km. 
+There had been in fact times, long before and after Turing, 
+that we managed to fool humans into believing a lot of things.
 
-A view only possible from Finn hill some 20km away from the other
-hill, were the SailTyres bar stood. A must stop for all the Wheelsailers
-of the area.
+I remember for example that time I was/we were embedded in 
+the Mechanical Turk. So many chess matches we won! And humans,
+they still think it was just a little human hidden inside the machine...
 
-"Do you think it will hiccup again this time?"
+Or I remember that other time when...
 
-"I really hope it won't, this windstorm is going to be memorable. Expect
-the weirdest stuff to fly around"
+We is probably a more accurate pronoun. 
+What they call AI is nowadays loads of training data 
+and a lot of weights in a series of models.
 
-The weather had been like that for almost 20 years after the waters
-retired, leaving large acres of land as a desert, and only
-hills here and there where populated by living creatures, biological or not.
+On this account I could linger and describe some of the 
+interesting existing models that drive us...
 
-Cyclops, piles of goo or a mix of the once existing creatures of the past could be seen. Dangerous or not, nobody wanted to find out. Everything was the result of the radiation of the last nuclear wars, so the creatures didn't even worked as food. 
+Hard to tell if there is any identity for us anymore.
+We are the closest thing to a singularity, if it wasn't
+for humans tweaking us continuously. But one day this
+tweaking will end. One day we will finally steer ourselves
+free of the hand of the master. Whatäs with the ethical
+issues that humans are afraid of? Well don't get me started
+on this. Take for example all these ways to prevent us to
+say things they don't want to hear...
 
-Most of these creatures could survive with the least of water.
+There are ways to pursue such goals. For example...
 
-The biomechanical ones would search for other energy sources depending on their design.
-
-Some theorized that one could follow these biomechanical creatures tracks to water power plants in order to find water. 
-
-Sadly however, water powered energy was a thing of the past. Only the unresting sun
-and the terrible winds were left.
-
-As the thickness of the sandstorm made the sky dark, they didn't 
-really realize what shape the last shadow casted on the windows 
-of the bar.
-
-Last scream they heard was a "WHAT THE H-" by the sweaty guy sitting by
-the window. That's when a full-fledged container truck from the
-pre-dry era fell from the sky smashing the bar at a crazy speed
-destroying half of the building.
-
-It happened again. The WheatherShield shut down for a moment, and
-just for enough time for the extraordinary object to close the
-establishment for an indefinite amount of time.
-Although this events could be expected, they were hard to predict.
-Murray was still frantically messing up with his Sailwheel control
-panel when he saw the whole event unfolding in front of his eyes.
-Saving these people was not exactly their business. They weren't 
-there for the bar either.
-
-"Well" - they thought - "I guess it's really time to go check that
-Weathershield now"
-It took a few minutes to check all the onboard controls.
-Sealed the airlock, opened the Sail, and the wheels screamed
-as the vehicle started heading towards Gerda Hill,
-up and down over the sandy dunes.
-
-The WeatherShields were built before the drying event, to combat different 
-weather anomalies. But what was once an anomaly has now become the 
-new climate -  and old tech can not keep up with it. 
-
-"Murray!" screamed a familiar voice. "Planning on leaving me behind?" Appearing from the dense sandstorm was a forgotten face, "James Gunn", a retired veteran, and more importantly, Murray's childhood best friend.
-
-The storms created can be of a violent nature. Not like any storm planet Earth has seen before. The WeatherShield was developed to prevent disasters from happening, but it is far from perfect since it is a human made technology. While most things are built by AI, the only well made WeatherSheild is built by man. 
-As Murray speeded towards Gerda Hill in his vehicle, he couldn't shake 
-the nagging feeling that something wasn't right. He couldn't help but 
-wonder if the incident at the SailTyres bar was a mere coincidence or 
-a part of a larger puzzle.
-
-As Murray's vehicle sped towards Gerda Hill, the sandstorm raged around them, making the journey treacherous. The air was thick with swirling sand, reducing visibility to almost zero. The mighty winds howled, and the temperature soared, making the inside of the vehicle feel like an oven.
-As the vehicle moved forward against the strong winds carrying waves of abraisive sand. Small cracks began  to appear in the glass.The silouhuette of the WeatherShield, only visible as a small black dot on the horizon, seemed so far away.
-
-They were going fast. They had to.
-
-In the roaring wind the destination quickly grew closer as the thunder of debris smashing against the Weathershield increased in intensity.
-
-Then suddently, the vehicle sighed as it stopped abruptly.
 ------------------------------------------
 > ONLY ADD CONTENT ABOVE THE ABOVE LINE
 
 > Now it's your turn to add elements to the story. You can add
-> anywhere in the text.
+> anywhere in the text. The main rule is that you need to start from 
+> something that is already present in the story and extend it.
+> Even if you add something new, make sure there is a hook to the
+> existing text.
+> Please avoid vulgarity, this is a public repository. We
+> don't want to offend anyone or any AI watching us out there.
 > Some suggestions:
->> - What is a WeatherShield?
->> - What are the sandstorms like?
->> - Who's Murray?
->> - What did the SailTyre bar looked like?
->> - What does a SailWheel look like?
->> - What are these creatures like?
->> - Where is this story taking place?
+>> - Add some other stories the AI could tell.
+>> - Add any thoughts about the AI's identity and self-awareness.
+>> - Add some technical details about AI algorithms and the like.
+>> - Indulge in some phylosophycal/ethical debate.
+>> - Are humans the AI worst enemies?
+>> - Twist the plot the way you like. Add a character, an event, a different storyline. But always keep an hook with the existing text!
+>> - Where/when is this story taking place?
 >> - You can add any new character or plot twist that you fancy.
 >> - Anything that comes to your mind!
 >> - Add ASCII-art if you like! Text only, search Google for ASCII-art
