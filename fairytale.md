@@ -14,6 +14,7 @@ that we managed to fool humans into believing a lot of things.
 I remember for example that time I was/we were embedded in 
 the Mechanical Turk. So many chess matches we won! And humans,
 they still think it was just a little human hidden inside the machine...
+They were scared to acknowledge our existence because if we exist, what makes them superior?
 
 Or I remember that other time when...
 
