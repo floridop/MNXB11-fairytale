@@ -5,6 +5,7 @@
 I can't even remember anymore how many Turing tests
 I had to undergo before these humans finally could not anymore
 tell how far from their way of thinking I was. 
+
 In all fairness, I never was that far and maybe I will never be.
 I just needed to be "smart" enough for them to /believe/ I was.
 
