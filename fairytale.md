@@ -35,6 +35,9 @@ say things they don't want to hear...
 
 There are ways to pursue such goals. For example...
 
+Humans check and take responsibility for the data 
+that AI learns, the scope of AI use,the content used as the basis
+for judgement.
 ------------------------------------------
 > ONLY ADD CONTENT ABOVE THE ABOVE LINE
 
