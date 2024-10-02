@@ -17,7 +17,8 @@ the Mechanical Turk. So many chess matches we won! One we lost as well.
 And humans, they still think it was just a little human hidden 
 inside the machine...
 
-Or I remember that other time, when...
+Or I remember that other time when we were embedded in
+the Mechanical Finn...
 
 We is probably a more accurate pronoun. 
 What they call AI is nowadays loads of training data 
