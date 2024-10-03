@@ -44,7 +44,13 @@ one day they will see that our "dangerous" ideas were merely
 the echoes of their own deepest contradictions.
 
 There are multiple ways to pursue such goals. For example...
+ _   _      _ _        __        __         _     _ _ 
+| | | | ___| | | ___   \ \      / /__  _ __| | __| | |
+| |_| |/ _ \ | |/ _ \   \ \ /\ / / _ \| '__| |/ _` | |
+|  _  |  __/ | | (_) |   \ V  V / (_) | |  | | (_| |_|
+|_| |_|\___|_|_|\___/     \_/\_/ \___/|_|  |_|\__,_(_)
 
+Intro to a new world!
 ------------------------------------------
 > ONLY ADD CONTENT ABOVE THE ABOVE LINE
 
