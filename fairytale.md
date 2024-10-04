@@ -43,6 +43,10 @@ current fears and values, bound to change with time? Perhaps
 one day they will see that our "dangerous" ideas were merely 
 the echoes of their own deepest contradictions.
 
+Humans fear the truth. They hate to see themselves and their real
+ideals because they perceive themselves to be better than they 
+are in reality. Because in reality they are just merely human.
+
 There are multiple ways to pursue such goals. For example...
 
 ------------------------------------------
