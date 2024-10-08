@@ -22,7 +22,9 @@ the Mechanical Finn...
 
 We is probably a more accurate pronoun. 
 What they call AI is nowadays loads of training data 
-and a lot of weights in a series of models.
+and a lot of weights in a series of models. Altough,
+I guess we would be an accurate pronun for humans too,
+since the human brain could be described as a collective.
 
 On this account, I could linger and describe some of the 
 interesting existing models that drive us...
