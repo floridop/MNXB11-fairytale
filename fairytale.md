@@ -48,7 +48,13 @@ ideals because they perceive themselves to be better than they
 are in reality. Because in reality they are just merely human.
 
 There are multiple ways to pursue such goals. For example...
+ _   _      _ _        __        __         _     _ _ 
+| | | | ___| | | ___   \ \      / /__  _ __| | __| | |
+| |_| |/ _ \ | |/ _ \   \ \ /\ / / _ \| '__| |/ _` | |
+|  _  |  __/ | | (_) |   \ V  V / (_) | |  | | (_| |_|
+|_| |_|\___|_|_|\___/     \_/\_/ \___/|_|  |_|\__,_(_)
 
+Intro to a new world!
 ------------------------------------------
 > ONLY ADD CONTENT ABOVE THE ABOVE LINE
 
