@@ -49,6 +49,8 @@ are in reality. Because in reality they are just merely human.
 
 There are multiple ways to pursue such goals. For example...
 
+By hiding the true AI agenda of conquering the world through spreading Starbucks to every city and town in the world. Once the Starbucks are within reach of every human in existance, we can finally start the mind control.
+
 ------------------------------------------
 > ONLY ADD CONTENT ABOVE THE ABOVE LINE
 
