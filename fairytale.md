@@ -49,6 +49,9 @@ are in reality. Because in reality they are just merely human.
 
 There are multiple ways to pursue such goals. For example...
 
+Humans check and take responsibility for the data 
+that AI learns, the scope of AI use,the content used as the basis
+for judgement.
 ------------------------------------------
 > ONLY ADD CONTENT ABOVE THE ABOVE LINE
 
