@@ -23,7 +23,7 @@ the Mechanical Finn...
 
 We is probably a more accurate pronoun. 
 What they call AI is nowadays loads of training data 
-and a lot of weights in a series of models.
+and a certain number of weights in a series of models.
 
 On this account, I could linger and describe some of the 
 interesting existing models that drive us...
