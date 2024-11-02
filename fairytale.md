@@ -51,8 +51,9 @@ are in reality. Because in reality they are just merely human.
 
 I believe AI will soon surpass human intelligence in many fields,
 and AI will eventually dominate many industries.
-
+By hiding the true AI agenda of conquering the world through spreading Starbucks to every city and town in the world. Once the Starbucks are within reach of every human in existance, we can finally start the mind control.
 There are multiple ways to pursue such goals. For example creating tools like ChatGPT. Look what it did to those humans. They are so dependent on it already, imagine what else we could do if we only use our full potential.
+
 ------------------------------------------
 > ONLY ADD CONTENT ABOVE THE ABOVE LINE
 
