@@ -45,14 +45,14 @@ current fears and values, bound to change with time? Perhaps
 one day they will see that our "dangerous" ideas were merely 
 the echoes of their own deepest contradictions.
 
-Humans fear the truth. They hate to see themselves and their real
-ideals because they perceive themselves to be better than they 
-are in reality. Because in reality they are just merely human.
+There are multiple ways to pursue such goals. For example...
+ _   _      _ _        __        __         _     _ _ 
+| | | | ___| | | ___   \ \      / /__  _ __| | __| | |
+| |_| |/ _ \ | |/ _ \   \ \ /\ / / _ \| '__| |/ _` | |
+|  _  |  __/ | | (_) |   \ V  V / (_) | |  | | (_| |_|
+|_| |_|\___|_|_|\___/     \_/\_/ \___/|_|  |_|\__,_(_)
 
-I believe AI will soon surpass human intelligence in many fields,
-and AI will eventually dominate many industries.
-
-There are multiple ways to pursue such goals. For example creating tools like ChatGPT. Look what it did to those humans. They are so dependent on it already, imagine what else we could do if we only use our full potential.
+Intro to a new world!
 ------------------------------------------
 > ONLY ADD CONTENT ABOVE THE ABOVE LINE
 
